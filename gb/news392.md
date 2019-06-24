@@ -21,6 +21,13 @@
 <tr><td><h3><a href="https://github.com/dfh2/djy/blob/master/gb/19/6/22/n11339522.md#1" target="_blank">胡少江：中国人应该向香港人学习</a><br></h3><a href="https://github.com/dfh2/djy/blob/master/gb/19/6/22/n11339522.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/06/GettyImages-1151234765-600x400-1-150x120.jpg" align ="left"></a>香港二百万学生和市民上街，抗议香港特区政府试图强制在其控制的立法会通过所谓的“送中条例”，这场声势浩大的示威迫使傲慢的香港特首林郑月娥宣布该条例的修订议程无限期“暂停”。显然，任何知道中国政府和香港关系的人都非常清楚，无论当初强行在立法会提交该项条例，还是现在突然宣布停止审议该项条例，这些都不可能是林郑月娥自己的主张.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年06月22日 11:38 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/dfh2/djy/blob/master/gb/19/6/21/n11338720.md#1" target="_blank">夏小强：港人创造历史 中共治港彻底失败</a><br></h3><a href="https://github.com/dfh2/djy/blob/master/gb/19/6/21/n11338720.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/06/GettyImages-1151234765-150x120.jpg" align ="left"></a>2019年的6月，注定成为香港历史上划时代的一页。超过二百万民众走上街头，用和平方式抗议中共的暴政恶法。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年06月22日 9:05 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/dfh2/djy/blob/master/gb/19/6/21/n11338921.md#1" target="_blank">王友群：曾庆红祸乱香港的深层原因</a><br></h3><a href="https://github.com/dfh2/djy/blob/master/gb/19/6/21/n11338921.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/06/1403121248022320-600x400-150x120.jpg" align ="left"></a>关于香港目前的乱局，各方有不同的解读。透过重重表象、假象，笔者认为，无论在中国大陆，还是在香港，唯恐天下不乱的关键人物，是习近平反腐打虎“擒贼没擒王”的两个贼王——江泽民、曾庆红。前中共独裁者江泽民已经93岁，多次传出病危的消息，现在只剩咽下最后一口气了。真正能折腾的，就是原中共政治局常委、国家副主席曾庆红。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年06月22日 3:26 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/dfh2/djy/blob/master/gb/19/6/24/n11342228.md#1" target="_blank">关乐：香港反送中展望</a><br></h3>反送中启程，为共党送终。
+恶党没想到，美梦成噩梦。
+六四欲重演，招数暗照搬。
+只是临末日，时过境亦迁。
+香港非北京，卅年东西岸。
+依旧超限战，恶法破底线。
+党虽更无耻，力却不从愿。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年06月24日 2:21 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/dfh2/djy/blob/master/gb/19/6/24/n11342221.md#1" target="_blank">云鹤天：林郑月娥的选票</a><br></h3>林郑得票三条七
 有人解读气弃泣
 香港抗恶大游行
@@ -79,8 +86,5 @@
 基层遍设狼支部，羊产羊妻狼共享。
 一石激起千层浪，羊港沸腾游行忙；
 反对狼羊乱羊港，驱逐羊皮.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年06月22日 10:40 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/dfh2/djy/blob/master/gb/19/6/21/n11338741.md#1" target="_blank">陈思敏：中共央行报告“弃房买股”的背后</a><br></h3>中共央行6月20日发布了2019年二季度城镇储户问卷调查报告。
-
-在这份报告中的一组调查数据如下：计划下个季度出手买房的居民占比为21.0%，较一季度的21.5%出现下滑。而计划投资中选择股票的人有所增加，居民占比由一季度的17.2%，增至17.9%。以上数据显示，准备买房的人减少，买股票的人增加。据称，这也是央行.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年06月22日 1:02 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/dfh2/djy/blob/master/gb/news392.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/dfh2/djy/blob/master/gb/news392_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/dfh2/djy/blob/master/gb/news392_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/dfh2/djy/blob/master/gb/news392_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/dfh2/djy/blob/master/gb/news392_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/dfh2/djy/blob/master/gb/news392_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/dfh2/djy/blob/master/gb/news392_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/dfh2/djy/blob/master/gb/news392_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/dfh2/djy/blob/master/gb/news392_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/dfh2/djy/blob/master/gb/news392_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/dfh2/djy/blob/master/gb/news392_2.md#1">下一页</a></h3></td></tr>
 </table><p>原文地址： <a href="http://www.epochtimes.com/gb/news392.htm">http://www.epochtimes.com/gb/news392.htm</a>    （国内需<a href="https://git.io/fjmgJ">下载翻墙软件</a>才能访问）</p>
