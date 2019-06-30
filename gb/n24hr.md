@@ -485,7 +485,6 @@ BBC6月25日引述肯尼亚《商业日报》报导说，自中国的一些商人涌入肯尼亚首都内罗毕最大
 <tr><td><h3><a href="https://github.com/dfh2/djy/blob/master/gb/19/6/28/n11351107.md#1" target="_blank">圣盖博谷地下水恢复缓慢 节水成常态</a><br></h3><a href="https://github.com/dfh2/djy/blob/master/gb/19/6/28/n11351107.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/06/1-13-2-150x120.jpg" align ="left"></a> 2019年南加州雨水丰富，缓解了整个地区历年干旱和供水条件紧缺的困境。但圣盖博谷水利自治管辖区（SGVMWD）在6月27日（周四）举行的年度水资源会议上表示，目前地下水供应恢复仍然缓慢， 希望民众不要放松节水意识。
 
 根据最新数据，2019年圣盖博谷的平均降雨量达到126%，高于正常水平。但由于2011年至201.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年06月28日 10:40 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/dfh2/djy/blob/master/gb/19/6/27/n11350820.md#1" target="_blank">九旬老妪钱包被抢 列市缉“卑鄙”嫌犯</a><br></h3><a href="https://github.com/dfh2/djy/blob/master/gb/19/6/27/n11350820.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/06/purse-snatching-suspect-2-150x120.jpg" class="attachment-thumbnail size-thumbnail wp-post-image" align ="left"></a>周四（6月27日），列治文警方宣布通缉一名在公共场所抢走一名老妇人钱包的白人嫌犯，并称这一光天化日之下的抢劫案“冷酷”而“卑鄙”。据目击者描述，抢劫嫌犯是一名20岁不到或20岁出头的白人男子，身材较瘦，案发当时佩戴一顶黑色棒球帽，身穿黑色套头衫、黑色短裤和黑色运动鞋。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年06月28日 10:29 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/dfh2/djy/blob/master/gb/19/6/30/n11355225.md#1" target="_blank">云鹤天：李文足见王全璋</a><br></h3>狱中王全璋
 身体大变样
 情绪不稳定
