@@ -23,8 +23,22 @@
 <tr><td><h3><a href="https://github.com/cbzs/djy/blob/master/gb/19/7/13/n11382695.md#1" target="_blank">石文：惨烈的迫害在呼唤着人间正义（2）</a><br></h3><a href="https://github.com/cbzs/djy/blob/master/gb/19/7/13/n11382695.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2018/06/Screen-Shot-2018-06-30-at-10.32.18-150x120.jpg" align ="left"></a>明慧网二零一五年七月二十四日报导了一份控告元凶江泽民的诉状，记述的是辽宁省清原县法轮功学员孙鸿昌一家八口五死一残的悲惨遭遇，这又是中共江泽民集团犯下的一桩惊天惨案。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年07月13日 6:38 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/cbzs/djy/blob/master/gb/19/7/13/n11382538.md#1" target="_blank">玉清心：细说于溟拍摄的移植医院之309总院</a><br></h3><a href="https://github.com/cbzs/djy/blob/master/gb/19/7/13/n11382538.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/07/image1-1-e1561218076665-600x400-1-150x120.jpg" align ="left"></a>法轮功学员于溟在2018年11月深入北京几家器官移植医院，冒死录制的现场视频录像中涉及三家移植医院......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年07月13日 3:51 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/cbzs/djy/blob/master/gb/19/7/13/n11382164.md#1" target="_blank">袁斌：中共为何要抄没李锐书房里的全部文稿？</a><br></h3><a href="https://github.com/cbzs/djy/blob/master/gb/19/7/13/n11382164.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/07/434057fdf0a4fc388c38c57d5955df75-150x120.jpg" align ="left"></a>一个人去世后，无论是按法律还是按常情，有权处理他遗物的显然只有他的家人，外人是无权动的，即便是政府也一样，除非获得家人的授权。不过在中国，法律和常情在权力面前却可以是不作数的。如果中共想动谁的遗物，会把它们当回事吗？压根就不会。这不，据自由亚洲报导，中共元老李锐去世后不久，当局便将他书房里的全部书籍和文稿抄没一空！......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年07月13日 12:17 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/cbzs/djy/blob/master/gb/19/7/12/n11382046.md#1" target="_blank">戈壁东：中共五毛连续打人 民主国家何以忍</a><br></h3><a href="https://github.com/cbzs/djy/blob/master/gb/19/7/12/n11382046.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/07/15b090417ed172d8_ttl7dayV2T_cbe464c7eb63bc41-1-600x400-1-150x120.jpg" align ="left"></a>香港连侬墙边中共暴徒毒打抗议市民发生不久，纽约又有打着五星旗的暴徒追打欢迎蔡英文总统的民众的事件发生。在纽约这样的事件已经不是第一次出现了。在中国大陆用来打击异议人士的暴力手段，已经频繁出现在民主社会和法治国家，这无论如何是一件值得警惕的事情。说明中共匪徒在民主法治国家已经肆无忌惮，他们正在尝试突破法治国家底线，践踏民.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年07月13日 7:57 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/cbzs/djy/blob/master/gb/19/7/12/n11382031.md#1" target="_blank">周晓辉：外教徐州被抓 北京要恫吓英国？</a><br></h3><a href="https://github.com/cbzs/djy/blob/master/gb/19/7/12/n11382031.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/07/GettyImages-1012367478-3-600x400-1-150x120.jpg" align ="left"></a>刚愎自用、正在走钢丝的中共要清楚，恫吓这种方式是极其愚蠢的，不但不会让英、加屈服，反而不仅会激起所在国民众对中共的反感，敦促政府强硬回击，还会促使西方国家更加认清中共对世界的危害，从而加强团结，在更广泛领域联手打击中共。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年07月13日 7:53 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/cbzs/djy/blob/master/gb/19/7/15/n11384965.md#1" target="_blank">祝君安：非洲兄弟之喜讯</a><br></h3>伟大正确中共党，大学兼办风月场
+山大校长兼鸨公，优待非洲留学郎
+免费读书有学奖，单间空调舒而康
+为促中非友谊长，一男三女伴鸳鸯
+才比文君貌西施，政治可靠心向党
+内拉经济促消费，外解贸战燃眉慌......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年07月15日 10:31 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/cbzs/djy/blob/master/gb/19/7/15/n11384949.md#1" target="_blank">千瑞 ：朋友，你必须做出选择！</a><br></h3>朋友，你可知道：
+共产党不是一个政党，它是一个邪灵。
+朋友，你应知道：
+共产党原是一条古蛇，祸乱人类成精。
+百年间，共产党劫持了中国。
+谎言中，共产党屠戮了中国。
+主义里，共产党摧毁了中国。
+乱人间，它挑动以斗相残，因为它要的是人命。
+杀戮人，它喜欢血流成河，因为它灭的是人性。
+骗人加入，它把兽记印在.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年07月15日 10:13 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/cbzs/djy/blob/master/gb/19/7/14/n11384710.md#1" target="_blank">戈壁东：分赃冲突中的后极权中共向何处去？</a><br></h3>中共19大四中全会，按惯例半年前就应该召开了，但是至今毫无音讯。是不是与40年前中共13届三中全会破例延迟一样，也意味着中共面临历史转折？
 
 G20会议上，川普突然大赞习近平是“200年来最伟大的领袖之一”，同时对兵临城下的贸易战给了缓和期。即使习回国以后，中共方面出现反悔，川普也并没有急于加重制裁。显然，习给予了.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年07月15日 8:39 AM			</td></tr>
