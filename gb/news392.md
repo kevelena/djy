@@ -41,7 +41,7 @@
 骗人加入，它把兽记印在.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年07月15日 10:13 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/cbzs/djy/blob/master/gb/19/7/14/n11384710.md#1" target="_blank">戈壁东：分赃冲突中的后极权中共向何处去？</a><br></h3>中共19大四中全会，按惯例半年前就应该召开了，但是至今毫无音讯。是不是与40年前中共13届三中全会破例延迟一样，也意味着中共面临历史转折？
 
-G20会议上，川普突然大赞习近平是“中国200年来最伟大的领袖之一”，同时对兵临城下的贸易战给了缓和期。即使习回国以后，中共方面出现反悔，川普也并没有急于加重制裁。显然，习给.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年07月15日 8:39 AM			</td></tr>
+G20会议上，川普突然大赞习近平是“200年来最伟大的领袖之一”，同时对兵临城下的贸易战给了缓和期。即使习回国以后，中共方面出现反悔，川普也并没有急于加重制裁。显然，习给予了.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年07月15日 8:39 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/cbzs/djy/blob/master/gb/19/7/14/n11383745.md#1" target="_blank">若谷：调笑令?反送中</a><br></h3>林郑，
 林郑，
 俯首红朝恶政。
