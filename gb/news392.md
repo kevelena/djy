@@ -30,7 +30,12 @@
 
 此外，随时随处的安检是新疆的一大特色，住酒店、吃饭、进超市都需要进行安检和检查身份证。而且现在.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月09日 2:38 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/8/n11439309.md#1" target="_blank">陈思敏：中共北戴河会议聚焦经济坏消息</a><br></h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/8/n11439309.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2013/08/1308050828412039-150x120.jpg" align ="left"></a>中共北戴河会议据称已经开始，被指是重点议题之一的当前中国经济形势，8月以来的多个消息显示，其实不若先前各类官式发言的那么平稳运行。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月08日 6:52 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/8/n11439028.md#1" target="_blank">程晓容：中共对香港表态背后的六大真相</a><br></h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/8/n11439028.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/08/2019-08-07-16278-GettyImages-1159892186-150x120.jpg" align ="left"></a>近期，港府和北京当局祭出连番动作，充分暴露了中共的流氓本质，而且恰恰说明，港人的抗争具有远见，合理而正确。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月08日 5:43 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/10/n11445105.md#1" target="_blank">金浴凤：黑天鹅赋</a><br></h3>羽毛漆黑
+长喙横空
+眼闪电光
+声若雷轰
+爪蓄远古洪荒力
+翅展长虹五彩丽......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月11日 6:40 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/10/n11444937.md#1" target="_blank">郑纯清：邪恶党底香港露</a><br></h3>送中变成被送终，地下党唆地下警。
 武警陆警港警服，白衣黑社会相助。
 明里举国警训练，暗中港警轮番扮。
