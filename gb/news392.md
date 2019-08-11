@@ -29,7 +29,12 @@
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/8/n11440509.md#1" target="_blank">张婧：我听说的中共对新疆人的控制</a><br></h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/8/n11440509.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/08/9ceecbe5-995f-442d-84b4-8a23383ac9ac-1_meitu_2-600x400-1-150x120.jpg" align ="left"></a>最近友人全家到新疆旅游，回来后跟大家分享的除了新疆美丽的风景照片外，就是当地的维稳管制，令人大为骇异。比如在新疆水果摊上的刀都会用铁链子焊上，而且每把刀上还刻上了编号和刀主的姓名，这个编号和刀主姓名都会被警察登记造册。
 
 此外，随时随处的安检是新疆的一大特色，住酒店、吃饭、进超市都需要进行安检和检查身份证。而且现在.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月09日 2:38 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/8/n11439309.md#1" target="_blank">陈思敏：中共北戴河会议聚焦经济坏消息</a><br></h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/8/n11439309.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2013/08/1308050828412039-150x120.jpg" align ="left"></a>中共北戴河会议据称已经开始，被指是重点议题之一的当前中国经济形势，8月以来的多个消息显示，其实不若先前各类官式发言的那么平稳运行。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月08日 6:52 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/11/n11445344.md#1" target="_blank">关乐：就大陆乐伽公寓爆雷寄语有良小粉红?</a><br></h3>小粉红，跟党走，走到前头护旗手。
+累了倒头想歇歇，公寓关门拒收留。
+自家房子还没有，风雨稠稠又立秋。
+爱国也求国爱我，今后叫我往哪走？
+没等小粉红寻问，大五毛已开训吼。
+为点小事瞎嚷嚷，紧苦日子已久候。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月11日 10:53 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/10/n11445105.md#1" target="_blank">金浴凤：黑天鹅赋</a><br></h3>羽毛漆黑
 长喙横空
 眼闪电光
