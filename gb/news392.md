@@ -32,10 +32,26 @@
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/10/n11444558.md#1" target="_blank">李小刚：中共卫星脑控黑幕——等待被揭穿的反人类罪行</a><br></h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/10/n11444558.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2018/07/153f4291519f63ef_ttl7daytyF____3_20_20_20_20006zsKzZgw1f8psuxc88gj30zk0qodoy-150x120.jpg" align ="left"></a>地球人都知道——构成生产力的基本要素是以生产工具为主的劳动资料，引入劳动过程的生产对象和具有一定生产经验和劳动技能的劳动者。但是在中共卫星脑控中国人民长达半个世纪左右的时间内，在中共将科学技术是第一生产力作为行动指南的时候，生产力要素被赋予了新的惊天内涵。首先，劳动资料主要有卫星、雷达、基站、电视塔、电脑以及脑控软件。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月10日 9:03 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/10/n11444525.md#1" target="_blank">石铭：由“这是人干的事吗？”说起</a><br></h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/10/n11444525.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/02/thumb-final-150x120.jpg" align ="left"></a>据港媒披露，薄熙来落马后不久，温家宝在一次高层会议上说：“前六七年，其实更早时候，镇压法轮功给中国带来的可怕后果就已经看到了，我们经过调查发现江泽民使用令人震惊的国家财力去镇压一个手无寸铁的民间团体，非常荒谬，一直到现在，这个问题中央都没有去面对、去解决。”......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月10日 8:32 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/10/n11444430.md#1" target="_blank">胡少江：“镭射革命”和走向信用破产的香港警察</a><br></h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/10/n11444430.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/08/1908100709021538-150x120.jpg" align ="left"></a>纷乱的香港几乎每个星期都会出现一个、甚至多个新的冲突热点。最新的热点是所谓的“镭射革命”。周二（6日）晚间，香港浸会大学学生会会长方仲贤在深水埗鸭寮街近北河街一带被5名休班警察截停搜查，发现其身带10支镭射笔。因为在近来的示威活动中有人用镭射笔照射警察，所以警察称这些为“镭射枪”，是进攻性武器，随即以涉嫌持有攻击性武器.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月10日 7:56 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/10/n11444363.md#1" target="_blank">共产暴政录：中共积极响应北塔山入侵事件</a><br></h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/10/n11444363.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2012/09/1209052326442068-150x120.jpg" align ="left"></a>在国军的平叛和谈判下，新疆三区叛乱终被平定，苏联见拿不下新疆，但并不甘心，其后制造的中蒙冲突中支持外蒙古，还意图进犯新疆，重新控制新疆地区。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月10日 6:46 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/10/n11444103.md#1" target="_blank">王友群：中共在香港的倒行逆施</a><br></h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/10/n11444103.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/08/6-4-600x400-2-150x120.jpg" align ="left"></a>“反动”，这个词的本意是与“进步”相反的方向动。中共在历次政治运动中经常使用这个词，把却它异化了，变成了整人的“帽子”、打人的“棍子”。静观中共对待香港“反送中运动”的种种倒行逆施，用“反动”这个词的本意形容中共，最合适不过了。
-中共提出修订“送中条例”是反动
-中共提出修订“送中条例”有两大背景。一是国际背景。去年.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月10日 3:44 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/12/n11447253.md#1" target="_blank">杨则：致自由的香港人（改编动漫歌词）</a><br></h3>那是谁 是谁 是谁
+那是香港 香港人 香港人
+背负着暴动者的名义 舍弃了一切去战斗的华人
+香港之音如超声波 香港之火是霹雳火
+香港正气扩散全球 香港的激光是破坏光线
+将香港之力 集于一身
+正义的英雄 香港人 香港人......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月12日 2:23 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/12/n11447241.md#1" target="_blank">吐为快：误上贼船</a><br></h3>毛邓已坠地狱痛，中国仍在魔道疯；
+马教毒害五毛瞢，三呆更豢贪腐汹；
+大陆寂寂刀斧丛，香港沸沸反送中；
+若是初心反独裁，为何一党死命统？......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月12日 2:15 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/12/n11447032.md#1" target="_blank">陆客：末世民风（二）</a><br></h3>一. 伪战狼
+
+狼臆症
+成了疯
+红流氓
+到处冲
+全世界
+直发蒙
+哪来这些红眼大虾蠓......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月12日 2:09 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/12/n11446678.md#1" target="_blank">戈壁东：《华尔街日报》也染红了？</a><br></h3>
 
 中共宣传工具《澎湃新闻》9日得意洋洋的报导说“具有国际影响的大媒体揭示了美国贸易政策的失误”。它说的国际大媒体是美国发行量第一的《华尔街日报》。
@@ -57,6 +73,5 @@
 武警陆警港警服，白衣黑社会相助。
 明里举国警训练，暗中港警轮番扮。
 流氓政权流氓党，流氓手段总一贯。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月11日 5:48 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/10/n11444414.md#1" target="_blank">?朝颜：为香港加持</a><br></h3>东方之珠蒙难......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月10日 7:00 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/news392.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/dfcbzs/djy/blob/master/gb/news392_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/dfcbzs/djy/blob/master/gb/news392_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/dfcbzs/djy/blob/master/gb/news392_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/dfcbzs/djy/blob/master/gb/news392_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/dfcbzs/djy/blob/master/gb/news392_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/dfcbzs/djy/blob/master/gb/news392_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/dfcbzs/djy/blob/master/gb/news392_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/dfcbzs/djy/blob/master/gb/news392_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/dfcbzs/djy/blob/master/gb/news392_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/dfcbzs/djy/blob/master/gb/news392_2.md#1">下一页</a></h3></td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/dfcbzs/djy/blob/master/gb/news392.md#1<br><a href="https://github.com/dfcbzs/djy/blob/master/gb/news392.md#1"><img src="http://www.hehaibao.com/qr/index.php?m=1&e=L&p=10&t=&d=https://github.com/dfcbzs/djy/blob/master/gb/news392.md%231" title="分享本文章"></a><br>原文地址： <a href="http://www.epochtimes.com/gb/news392.htm">http://www.epochtimes.com/gb/news392.htm</a>    （国内需<a href="https://git.io/fjmgJ">下载翻墙软件</a>才能访问）</p>
