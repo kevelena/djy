@@ -26,17 +26,7 @@
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/3/n11428912.md#1" target="_blank">【共产主义的终极目的】第五章 （完整版）</a><br></h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/3/n11428912.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/08/ZJMD_videoPage_thumbnail_1200x800-1-150x120.jpg" align ="left"></a>新唐人根据《九评》编辑部同名新书制作的大型系列专题片——《共产主义的终极目的》为您揭示天机。本片文字内容为：第五章 邪灵篡位 文化沦丧（上，下）（更新完整版）......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月12日 2:26 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/11/n11446216.md#1" target="_blank">夏祷：2019火种：天象巨变（2）</a><br></h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/11/n11446216.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/08/1311151254252583-600x400-1-1-150x120.jpg" align ="left"></a>无论是红色中共的过去和现在，都是一个欺天欺世的谎言。人们忘记了这是一个非法的，入侵的政权，是前苏联的第七纵队一手成立的傀儡政权。把中国共产党等同于中国是一个弥天大谎。红色中共偷天换日，把70年的共产党等同于五千年的中华文明，而中共所营造的当下却是一个巨大的谎言，一个“伪现实”。竖立在谎言的流沙上的，不堪一击的伪现实。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月12日 12:49 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/11/n11445632.md#1" target="_blank">高天韵：港人接机 在“过期催泪瓦斯之城”</a><br></h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/11/n11445632.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/08/1908100537141538-2-150x120.jpg" align ="left"></a>“欢迎来到过期催泪瓦斯之城”，“对不起，给您带来不便，我们在保卫香港。”特殊的英语欢迎词，出现在香港国际机场大厅，传递抗暴护港的真实讯息。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月11日 5:10 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/11/n11445586.md#1" target="_blank">孟醒：香港在哭泣</a><br></h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/11/n11445586.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/08/1907171121151366-150x120.jpg" align ="left"></a>
-孟醒：香港在哭泣
-
-看了一名香港抗争者致内地同胞书，
-不禁心在滴血、泪如泉涌……
-香港——一个曾经在自由怀抱中的宠儿，
-如今正在遭受恶魔的欺压、蹂躏……
-七百万香港儿女预感到昔日的自由将会不复存在，
-纷纷走上街头去呐喊、抗争，
-从数千到十几万、几十万、数百万……
-在无数催泪弹、海绵弹、橡胶子弹、警.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月11日 3:47 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/13/n11449123.md#1" target="_blank">唐恩：中共玩弄法律又一章</a><br></h3>山东省青岛市黄岛区法院对平度市法轮功学员盛淑莉和曲元芝的开庭，原定于今年七月二十九日开庭，后来改为八月八日，又推迟至八月十二日。日前，平度“六一零办公室”胁迫盛淑莉家人辞退北京维权律师，威胁家人说：“请维权律师，判五年；同意指派律师，判三年。”......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月13日 9:40 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/12/n11448899.md#1" target="_blank">杨咤：中共为什么总要向世界展现流氓本性</a><br></h3>最近，中共采用阴阳手法在香港派遣了大量陆警，一方面悄悄实行警管，另一方面充当“示威民众”，或在内部暴力捣乱以制造镇压借口，或与黑社会勾结明着殴打民众。也有穿着警服动用武器枪伤市民，也有专挑落单市民选阴暗角落人身攻击。有姑娘被打暴眼球，有青年被打瘫在地，有老人被打得满脸是血……而中共在它的媒体上大 叫：香港市民居然藏着攻.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月13日 4:50 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/12/n11447253.md#1" target="_blank">杨则：致自由的香港人（改编动漫歌词）</a><br></h3>那是谁 是谁 是谁
 那是香港 香港人 香港人
