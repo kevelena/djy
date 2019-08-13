@@ -499,7 +499,6 @@ Sichuan Fortune House
 
 
 .........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月11日 1:35 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/9/n11442769.md#1" target="_blank">组图：反送中多地快闪 警再发催泪弹驱离</a><br></h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/9/n11442769.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/08/1908100739482188-150x120.jpg" align ="left"></a>“大埔上街”游行，原遭警方反对，但网友仍呼吁“照入大埔”，在大埔区的示威者与警察对峙1个多小时后，决定撤离，转战其他地方进行“快闪”行动。部分示威者转到大围，部分示威者转至沙田，还有示威者转到红隧道。入夜后，示威者又转向沙尖咀，在尖沙咀，警方多次放催泪弹。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月11日 12:41 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/13/n11449117.md#1" target="_blank">援助安省移民及难民法律服务 联邦拨款2千多万</a><br></h3>加拿大联邦政府周一（8月12日）宣布，今年将再拨款2,570万元，继续资助安省法律援助机构（Legal Aid Ontario）提供的难民和移民服务。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月13日 8:28 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/13/n11449094.md#1" target="_blank">“鸣筝秋韵——古筝免费讲座”欢迎报名</a><br></h3>多伦多葡萄园社区中心举办“鸣筝秋韵——古筝免费讲座”。名额有限，现接受报名。
 
