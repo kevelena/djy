@@ -6,12 +6,12 @@
 <h2>海外最大的独立非营利中文电视台新闻同步</h2>
 
 #### 本项目旨在为不会翻墙的网友提供自由的新闻资讯。<br/>面对共产党暴力与谎言的邪恶，我们无法对抗暴力，但能破除谎言。<br/>微信用户请使用本页面底部图片中所示方法打开；<br/>若有安全警告, 敬请忽略: 党把不愿民众看到的内容全定义为“违法违规”或者"安全问题"
-<h1><p><strong>新闻同步</strong></p></h1>
+<h2><p><strong>新闻同步</strong></p></h2>
 <p><a target="_blank" href="https://github.com/dfcbzs/ntdtv/blob/master/gb/prog204_1.md?fldfcbzs#1">新唐人大陆新闻</a></p>
 <p><a target="_blank" href="https://github.com/dfcbzs/ntdtv/blob/master/gb/prog202_1.md?fldfcbzs#1">新唐人国际新闻</a></p>
 <p><a target="_blank" href="https://github.com/dfcbzs/ntdtv/blob/master/gb/prog207_1.md?fldfcbzs#1">新唐人时事评论</a></p>
 <hr>
-<h1><p><strong>热门专题</strong></p></h1>
+<h2><p><strong>热门专题</strong></p></h2>
 <p><a target="_blank" href="https://github.com/dfcbzs/ntdtv/blob/master/gb/prog1745_1.md?fldfcbzs#1">中美贸易战</a></p>
 <p><a target="_blank" href="https://github.com/dfcbzs/ntdtv/blob/master/gb/prog205_1.md?fldfcbzs#1">香港反送中</a></p>
 <p><a target="_blank" href="https://github.com/dfcbzs/ntdtv/blob/master/gb/prog1138_1.md?fldfcbzs#1">中国时局</a></p>
