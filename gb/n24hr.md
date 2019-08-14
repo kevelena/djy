@@ -761,5 +761,4 @@ Sichuan Fortune House
 魁省政府一直被批评留不住移民，移民登陆该省后，很快就搬去别的省份去了。
 
 目前的魁省政府强调移民为经济服务，省府在今年6月启动新移民挑选系统Arrima，旨在解决该省的劳动力短缺问题.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月12日 2:42 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/11/n11445832.md#1" target="_blank">香港市民推出 反送中民间独立调查报告</a><br></h3>香港民众“反送中”行动持续升温，对于民间要求成立独立调查委员会，港府一直不愿回应。有香港网民近日利用云端共享文字编辑平台，合力撰写一份“民间独立调查报告书”，指出现有投诉机制的缺失，并建议唯有实施“双普选”，才能避免未来重蹈覆辙。该报告书的中期报告已接近完成，并推出“公众试阅版本 ”。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月12日 1:30 AM			</td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/dfcbzs/djy/blob/master/gb/n24hr.md#1<br><a href="https://github.com/dfcbzs/djy/blob/master/gb/n24hr.md#1"><img src="http://www.hehaibao.com/qr/index.php?m=1&e=L&p=10&t=&d=https://github.com/dfcbzs/djy/blob/master/gb/n24hr.md%231" title="分享本文章"></a><br>原文地址： <a href="http://www.epochtimes.com/gb/n24hr.htm">http://www.epochtimes.com/gb/n24hr.htm</a>    （国内需<a href="https://git.io/fjmgJ">下载翻墙软件</a>才能访问）</p>
