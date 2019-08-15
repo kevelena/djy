@@ -29,7 +29,15 @@
 正邪交战时，无一不选边。
 回复求救信，川普一起站。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月13日 4:08 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/12/n11448708.md#1" target="_blank">颜丹：香港人在街头与大陆人在银行</a><br></h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/12/n11448708.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/08/190805140901100615-600x400-1-150x120.jpg" align ="left"></a>时至今日，摆在中国人面前的现实只有一个，那就是，走上街头、反抗暴政的香港人不仅比大陆的吃瓜群众更有远见，也比只能在银行里愤怒、吆喝的大陆人更有希望、有尊严。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月13日 3:38 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/12/n11448508.md#1" target="_blank">吴惠林：难了的美中贸易战</a><br></h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/12/n11448508.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/07/15b5f45841f13fbe_ttl7dayD18_006-TP-150x120.jpg" align ="left"></a>峰回路转的“美中贸易战”，打从一开战，就有“持久战”的声音出现，经过一年多眼见就要签约，中共又突然变卦全盘否定。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月12日 11:28 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/15/n11454254.md#1" target="_blank">理悟：中共奔命北戴河</a><br></h3>北戴八月起悲歌，噩耗频传波连波。
+又报绝路八道坎，破车甩箱如何过？
+尚有一坎被漏掉，不知何故君未说。
+活摘器官曝全球，铁证如山罪怎脱？
+近日台媒揭新丑，更显中共多邪恶。
+外国政要被收买，金钱美女多龌龊。
+更有损招供器官，保命赤化一丘貉。
+一经查实一网收，审判台上慢慢剥。
+秋风阵阵凉意起，霜打残红纷纷落。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月15日 12:53 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/14/n11453748.md#1" target="_blank">夏林：川普让中共穷相毕露</a><br></h3>中共在打天下的时候，总是说，他们是为穷人打天下；中共在夺得政权之后，将地主的土地分给穷人；又将资本家的企业收回国有，说是让工人阶级做主；那么这些穷人，工人富了没有？没有，反而全中国都是穷人。为什么，因为中共的本质就是一穷二白，什么都没有，跟着中共，只能是穷。
 
 在六四镇压之后，中共发现，如果还让中国人穷下去，它的独.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月15日 6:54 AM			</td></tr>
