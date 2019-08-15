@@ -4,7 +4,7 @@
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/15/n11453884.md#1" target="_blank">香港反送中 伪装的示威者都做了啥？</a><br></h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/15/n11453884.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/08/1908110657121366-Hennesey-tear-gas-1-150x120.jpg" align ="left"></a>大纪元2019年08月15日讯】（大纪元记者章洪综合报导）香港反送中运动持续两个月，港警暴力不断升级，密集使用催泪弹、布袋弹、橡胶子弹、海绵弹等具有杀伤力的武器，甚至在地铁站内近距离向抗议民众发射。香港局势引发全球的关注与担忧。
 
 在反送中活动中，抗议者发现有假扮的抗议者、港警伺机兴乱，混淆视听。北京则对抗议者抛出“恐怖主义”的威胁。
-中共人员假扮的示.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月15日 1:50 PM							</td></tr>
+中共人员假扮的示.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月15日 12:50 PM							</td></tr>
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/15/n11453889.md#1" target="_blank">【翻墙必看】中共500辆军车集结深圳</a><br></h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/15/n11453889.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/08/3bae42bcd2b2b60d310a522d61e9c995-600x400-1-150x120.jpg" align ="left"></a>大纪元每天为读者梳理翻墙必看的文章：
 
 1.中共深圳集结500辆军车 口岸防港人“快闪”
