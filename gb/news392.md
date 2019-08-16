@@ -15,11 +15,9 @@
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/16/n11456429.md#1" target="_blank">戈壁东：香港民众敲响了中共丧钟</a><br></h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/16/n11456429.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/08/GettyImages-1158322928@1200x1200-150x120.jpg" align ="left"></a>每一次写香港评论的时候，总是忍不住眼泪。因为我们看到了香港市民正在以弱小之躯，抗争强大与邪恶、举世无双的中共红色恶龙。
 
 他们只是一些普通的香港市民，很多人昨天还是妈妈的宠儿、莘莘学子、街头散步的老人、商场购物的街坊、忙碌的上班族。他们200万人和平抗议，以命死谏付出了四条生命，只得到暴力镇压的回应。他们不得不面对.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月16日 8:47 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/15/n11456413.md#1" target="_blank">真实的“无间道”正在香港上演</a><br></h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/15/n11456413.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/08/1908110657121366-Hennesey-tear-gas-1-600x400-1-150x120.jpg" align ="left"></a>
+<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/15/n11456413.md#1" target="_blank">真实的“无间道”正在香港上演</a><br></h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/15/n11456413.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/08/1908110657121366-Hennesey-tear-gas-1-600x400-1-150x120.jpg" align ="left"></a>香港警匪电影《无间道》三部曲被视为提振香港电影的经典，其片名“无间”的意思是指佛家中地狱的最底层“无间地狱”，寓意两名主角“卧底”的身份犹如生活在无间炼狱，永世不得轮回。
 
-香港警匪电影《无间道》三部曲被视为提振香港电影的经典，其片名“无间”的意思是指佛家中地狱的最底层“无间地狱”，寓意两名主角“卧底”的身份犹如生活在无间炼狱，永世不得轮回。
-
-没想到如今真实的“无间道”正在香港上演。自6月份香港反送中抗议事件以来，示威者接连遭到警方武力镇压。8月11日，港警暴力清场，一名女医.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月16日 8:13 AM			</td></tr>
+没想到如今真实的“无间道”正在香港上演。自6月份香港反送中抗议事件以来，示威者接连遭到警方武力镇压。8月11日，港警暴力清场，一名女医护义工右.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月16日 8:13 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/15/n11456127.md#1" target="_blank">颜丹：医生搞“假捐献”被抓在掩盖什么？</a><br></h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/15/n11456127.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/08/Tribunal_1-g-600x400-150x120.jpg" align ="left"></a>发生在数月前的“安徽一死者肝肾被‘假捐献’，6名医护人员涉侮辱尸体罪被捕”之事，突然于近日被大陆官媒拿出来翻炒。据报道，搞“假捐献”的始作俑者，直指安徽某县人民医院的ICU主任杨某。
 
 从披露的细节来看，这位杨主任造假的过程极为诡异。当他发现患者李某“处于脑死亡状态”时，就“告知家属随时有心跳骤停可能”。由于“患者.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月16日 5:36 AM			</td></tr>
