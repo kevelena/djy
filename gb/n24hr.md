@@ -445,6 +445,9 @@ Diane³ÂÆ¾×Å¶Ô¿Í»§µÄ·þÎñÈÈ³À¡¢ÓÃÐÄ¡¢¼á³Ö¡¢³Ï¿Ò¼°×¨ÒµµÄ¹¤×÷Ì¬¶È£¬Ê¹Í¶±£µÄ¿Í»§ÁË½â±
 
 2.·´ËÍÖÐÊ¾ÍþÕßÖ¤Êµ£º¸Û¾¯ÎÔµ×É¿¶¯±©ÐÐ
 ¶ÔÓÚÏã¸Û¾¯·½11ÈÕÍíÒÉËÆ¼Ù°çÊ¾ÍþÕß£¬ÓÚÍ­ÂàÍåµØÇøÌôÆð³åÍ».........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê08ÔÂ16ÈÕ 9:47 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/16/n11457873.md#1" target="_blank">ÃÀÑÐ¾¿ÏÔÊ¾£ºµç×ÓÑÌÊ¹ÇàÉÙÄêÎüÂé¸ÅÂÊÔö¼Ó3.5±¶</a><br></h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/16/n11457873.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/08/ca11c3dbdfab97739c949dc3a0c9081a-150x120.jpg" align ="left"></a>¸ù¾ÝÃÀ¹ú×îÐÂÑÐ¾¿Ö¸³ö£¬Ê¹ÓÃ¹ýµç×ÓÑÌµÄÇàÉÙÄê£¬ÎüÊ³´óÂéµÄ¸ÅÂÊÊÇÃ»ÓÃ¹ýÇàÉÙÄêµÄ3.5±¶£¬ÁíÍâ£¬Ïà¹ØÑÐ¾¿Ò²ÔçÒÑÖ¤Êµµç×ÓÑÌÈÝÒ×ÒýÆð·Î²¿·¢Ñ×¡¢¹ýÃôºÍ²úÉúÏø´­£¬·¢ÉúÐÄ¼¡¹£Èû¸ÅÂÊÔö2±¶¡£......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê08ÔÂ16ÈÕ 9:39 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/16/n11457897.md#1" target="_blank">¼·¶Ò¸ÛÒø²»ÈçÔ¤ÆÚ   Ñ§Õß£ºÈÃÖÐ¹²ÎÞ·¨¸ÉÔ¤</a><br></h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/16/n11457897.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/08/912c76190fc6c2618829f0fb3b62f3c2-150x120.jpg" align ="left"></a>Ïã¸ÛÃñÖÚ¡°·´ËÍÖÐ¡±¿¹Õù³ÖÐøÁËÁ½¸ö¶àÔÂ£¬´Ó°Õ¹¤¡¢°Õ¿Î¡¢°ÕÊÐµ½Ì±»¾»ú³¡£¬½üÈÕ¸üÓÐÍøÓÑ·¢ÆðÏã¸Û8ÔÂ16ÈÕ¡°ÒøÐÐ´ó¼·¶Ò¡±»î¶¯£¬¼´ºôÓõ²ÎÓë¿¹ÒéµÄ200ÍòÃñÖÚ×ßÈë¡°½ðÈÚ·´ÖÆ¡±½×¶Î£¬µ½Ïã¸ÛµÄÒøÐÐÌáÈ¡³öÃÀÔª¡£ÃÀ¹ú½ðÈÚ¾ÞÍ·°ÍË¹£¨Kyle Bass£©Ôø±íÊ¾£¬Ö»Ðè4%¡«5%µÄÏã¸ÛÈË¼·¶ÒÒøÐÐ£¬¼´¿É´Ý»ÙÏã¸Û½ðÈÚÌåÏµ¡£......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê08ÔÂ16ÈÕ 9:36 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/16/n11457880.md#1" target="_blank">ÅíÆôÃ÷£ºÎ÷ÄÏ·çÖÜÄ©½«ÉÔ¼õÈõ ±±²¿Îçºó½µÓêÔö</a><br></h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/16/n11457880.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/08/999c538e8a98d702063f0415092bd8ca-150x120.jpg" align ="left"></a>ÊÜµ½Ç¿¶ÔÁ÷Ç¿Ê¢Î÷ÄÏ·çÓ°Ïì£¬Á¬ÈÕºÀÓê£¬Ôì³ÉÖÐÄÏ²¿¶à´¦´«³öÑÍË®ÔÖÇé¡£ÆøÏó×¨¼ÒÅíÆôÃ÷±íÊ¾£¬Õâ²¨½ÏÇ¿µÄÎ÷ÄÏ·ç£¬Ô¤¼ÆÖÜÁù(17ÈÕ)¿ªÊ¼»áÖð½¥×ªÈõ£¬Ì¨Íå¸½½üË®ÆûÈÔ¶à£¬±±²¿³öÏÖÎçºóÀ×ÕóÓê¸ÅÂÊÔö¼Ó£¬¿ÉÄÜÒª³ÖÐøµ½ÏÂÖÜÈý(21ÈÕ)¡£......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê08ÔÂ16ÈÕ 9:36 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/19/n11461806.md#1" target="_blank">ÔâÆøÇ¹ÉäÖÐ ±ö¶ÙÅ®×ÓÊÜÇáÉË</a><br></h3>Ò»Ãû±ö¶ÙÊÐÅ®×ÓÖÜÈÕ±»ÆøÇ¹ÉäÖÐÊÜÇáÉË¡£......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê08ÔÂ19ÈÕ 4:18 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/18/n11461675.md#1" target="_blank">¿ªºÀ³µ×¡Á®×âÎÝ »áÊÇÊ²Ã´ÈË£¿</a><br></h3>¶àÂ×¶àÊÐÕþ¸®×ÊÖúµÄÁ®×â¾ÓËù£¨Toronto Community Housing£©£¬ÊÇ¸øµÍÊÕÈë¼ÒÍ¥×¡µÄ¡£µ«ÊÇ£¬ÓÐÐ©×¡¿Í¿ªµÄÈ´ÊÇºÀ³µ£¬ÓëÕâ½ÖÇøµÄÊÕÈëÇé¿öÍêÈ«²»Ïà·û£¬¶øÇÒ¿´ÆðÀ´Óë·¸×ïÏà¹Ø¡£
 
@@ -580,4 +583,38 @@ Diane³ÂÆ¾×Å¶Ô¿Í»§µÄ·þÎñÈÈ³À¡¢ÓÃÐÄ¡¢¼á³Ö¡¢³Ï¿Ò¼°×¨ÒµµÄ¹¤×÷Ì¬¶È£¬Ê¹Í¶±£µÄ¿Í»§ÁË½â±
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/16/n11457869.md#1" target="_blank">ÃÀÖÞÂÌ÷àòáÓÐº¦ÉúÌ¬ ÑøÇ°ÐëµÇ¼ÇÇÒ²»µÃ·±Ö³</a><br></h3>ÁÖÎñ¾Ö15ÈÕÔ¤¸æ¡°ÓÐº¦ÉúÌ¬»·¾³¡¢ÈËÐó°²È«Ö®ÓÝÖ®Ô­·ÇÎÒ¹úÔ­ÉúÖÖÂ½ÓòÒ°Éú¶¯ÎïÖ®ÖÖÀà¡±²Ý°¸£¬½«ÃÀÖÞÂÌ÷àòáÁÐÎªÓÐº¦ÉúÌ¬»·¾³µÄÔ­·ÇÌ¨ÍåÔ­ÉúÖÖ¡£ÁÖÎñ¾Ö16ÈÕ±íÊ¾£¬²Ý°¸½«½øÐÐ60ÌìÔ¤¸æ£¬»ãÕû¸÷½çÒâ¼û¡£ÕýÊ½¹«¸æºóËÇÑøÃÀÖÞÂÌ÷àòáÐèÏòÖ±Ï½ÊÐ¡¢ÏØ (ÊÐ) Ö÷¹Ü»ú¹ØµÇ¼Ç±¸²é£¬ÇÒÎ´¾­Ö÷¹Ü»ú¹ØÍ¬Òâ²»µÃ·±Ö³¡£......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê08ÔÂ16ÈÕ 9:44 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/16/n11457893.md#1" target="_blank">¹ùÄ»ÁÅ£ºÌ¸ÈËÑ¡¶¼Ö»ÊÇÒÜ²â ¹ù»¹²»´òËã²ÎÑ¡¡¡¡¡</a><br></h3>Ì¨±±ÊÐ³¤¿ÂÎÄÕÜ16ÈÕÉÔÔç£¬½øÐÐÔ¤Â¼¹ã²¥½ÚÄ¿ÖÐ±¬ÁÏ£¬ºèº£¼¯ÍÅ´´°ìÈË¹ùÌ¨ÃúÔøÑûÇë¿ÂÎÄÕÜ´îµµ¡°¹ù¿ÂÅä¡±£¬µ«¿ÂÎÄÕÜ¾Ü¾øÁË¡£¶Ô´Ë£¬¹ùÌ¨ÃúÄ»ÁÅ¡¢ÓÀÁä»ù½ð»áÖ´ÐÐ³¤Áõå¶Í®±íÊ¾£¬²»ÖªµÀÊÇ·ñÓÐÕâÑùµÄ¶Ô»°£¬Í¬Ê±ÖØÉê¹ùÌ¨Ãú¸öÈËÃ»ÓÐÒªÇóÎ»ÖÃ¡¢È¨Á¦£¬µ½ÏÖÔÚ¶¼»¹Ã»ÓÐ²ÎÑ¡×¼±¸£¬ÏÖÔÚÌ¸ÈËÑ¡´îÅä£¬¶¼Ö»ÊÇÒÜ²â¡£......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê08ÔÂ16ÈÕ 9:41 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/16/n11457871.md#1" target="_blank">ÔâÅú¹«Îñ³µÅÜÑ¡¾Ù ²ÌÓ¢ÎÄ£º×¨×¢¹úÕþ</a><br></h3>ÓÐ¹úÃñµ³Á¢Î¯½¨Òé×ÜÍ³Æ½ÈÕÑ¡¾ÙÐÐ³Ì²»ÒªÊ¹ÓÃ¹«Îñ³µ£¬×ÜÍ³²ÌÓ¢ÎÄ16ÈÕÊÜ·Ã±íÊ¾£¬ËýÏÖÔÚ»¹ÊÇ×¨×¢ÔÚ¹úÕþÉÏ£¬¼ûÖ¤ÊÐÕþ¼°ÖÐÑëÓëµØ·½ºÏ×÷£¬ËùÕ¹ÏÖ³öµÄ¾ßÌåÕþ¼¨¼°³É¹û£¬Õâ¶¼ÊÇ¹ú¼ÒÕþ²ß¼°Ê©ÕþÏîÄ¿¡£²ÌÓ¢ÎÄ·´ÎÊ¡°Õâ²»¾ÍÊÇ½ÓµØÆøÂð£¿¡±......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê08ÔÂ16ÈÕ 9:41 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/15/n11456063.md#1" target="_blank">·µÐ£¹ºÎï±ðÍüÓÅ»ÝÈ¯</a><br></h3>·µÐ£¼¾½Ú¼´½«À´ÁÙ£¬Èç¹ûÄãÓÐÐËÈ¤´Ó·µÐ£¹ºÎïÖÐÊ¡ÏÂ¼¸¿éÇ®£¬Ò»¶¨±ðÍüÁË´ÓÓÊÏäÀïµÄÃâ·Ñ¹ã¸æÖÐÊÕ¼¯ÓÅ»ÝÈ¯¡£
+
+ÎÄ¾ßµêStaples¡¢Office DepotÌá¹©ÎÄ¾ßÕÛ¿Û¾í¡£Jcpenny¡¢Kohl¡¯s¡¢MacyÓÐÐ£·þÕÛ¿Û¾í¡£Taget¡¢WalmartÔòÓÐÎÄ¾ß¼°Ð£·þÕÛ¿Û¡£
+
+ÔðÈÎ±à¼­£ºÍõ¬s......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê08ÔÂ16ÈÕ 9:41 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/15/n11456075.md#1" target="_blank">·Ñ³Ç²®Àûºã¾ÆµêõÒÉíÈ«ÃÀ×î¼ÑÀúÊ·¾Æµê</a><br></h3>·Ñ³Ç²®Àûºã¾Æµê£¨Hotel Bethlehem£©ÈëÎ§¡¶½ñÈÕÃÀ¹ú¡·Ê®´ó¡°×î¼ÑÀúÊ·¾Æµê¡±£¬ÃûÁÐµÚÈý¡£
+
+¡¶½ñÈÕÃÀ¹ú¡·¸ù¾Ý×¨¼ÒÍÅ¶ÓµÄÒâ¼û£¬²ÎÕÕÐÐÒµ½±ÏîÒÔ¼°¹Ë¿ÍÆÀÂÛ£¬Ñ¡³ö20ÁË¸ö¾Æµê£¬ÔÙÓÉ¡¶½ñÈÕÃÀ¹ú¡·µÄ¶ÁÕßÃÇÍøÉÏÍ¶Æ±Ñ¡³öÇ°10Ãû¡£
+
+ÃûÁÐµÚÒ»µÄÊÇÉÏ½ì¹Ú¾üÆ¤²©µÏÃÏ·ÆË¹£¨Peabody Memphis£©¾Æµê£¬ÕâÀïÃ¿Ìì¶¼¾Ù°ì.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê08ÔÂ16ÈÕ 9:40 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/16/n11457876.md#1" target="_blank">Ô¸³Ðµ£ÆðÔðÈÎ ÒéÔ±ÁÖÁÁ¾ý²ÎÑ¡Ê±Á¦µ³Ö÷Ï¯</a><br></h3>Ê±´úÁ¦Á¿ÔÚÇñÏÔÖÇ´ÇÈ¥µ³Ö÷Ï¯ºó£¬µ³ÄÚÏÝÈëÃ»ÓÐµ³¿ýµÄ¾ÖÃæ¡£Ì¨±±ÊÐÒéÔ±¡¢Ê±Á¦¾ö²ßÎ¯Ô±ÁÖÁÁ¾ý16ÈÕÐû²¼²ÎÑ¡Ê±Á¦µ³Ö÷Ï¯¡£Ëý±íÊ¾£¬Ã¿´Î¿ª¾ö²ß»á¶¼ËðÊ§Ò»Î»Õ½ÓÑ£¬ËýÒªÊØ»¤µ³³ÉÁ¢ÖÁ½ñµÄ³É¹û£¬ÈÃÊ±Á¦ÎªÌ¨Íå³Ðµ£¸ü´óµÄÔðÈÎ£¬Ò²²»Ï£ÍûÔÙÊ§È¥ÈÎºÎÒ»Î»Õ½ÓÑ¡£......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê08ÔÂ16ÈÕ 9:37 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/15/n11456042.md#1" target="_blank">ÄÏ·Ñ³ÇÁ¶ÓÍ³§»ðÔÖÎÛÈ¾ÉÐÐèÊ±¼ä½â¾ö</a><br></h3>6ÔÂ21ÈÕÁè³¿4µã×óÓÒ£¬ÄÏ·Ñ³ÇÁ¶ÓÍ³§·¢Éú3´Î±¬Õ¨¡£·Ñ³ÇÏû·À¾Ö³¤Adam Thie½üÈÕ±íÊ¾£¬¡°¿ÉÄÜ»¹ÐèÒª¼¸ÖÜ»ò¸ü³¤µÄÊ±¼äÀ´ÖÐºÍ6ÔÂ21ÈÕÔç³¿ÊÍ·ÅµÄÊýÍò¼ÓÂØµÄÇâ·úËá¡£¡±
+
+ÓÉ¶¡ÍéºÍ±ûÍé»ìºÏÆøÌåÔì³ÉµÄ´ó»ðÕûÕûÈ¼ÉÕÁËÁ½Ìì£¬ÓÐÊýÍò¼ÓÂØµÄÇâ·úËá±»ÅÅ·Åµ½ÁË¸½½üÄÏ·Ñ³ÇÉçÇøµÄ¿ÕÆøÖÐ¡£
+
+Çâ·úËá£¨HF£©Í¨³£±»Á¶ÓÍ³§ÓÃ×÷´ß»¯¼ÁÒÔ²úÉú.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê08ÔÂ16ÈÕ 9:36 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/15/n11456020.md#1" target="_blank">·Ñ³ÇÖÐÐÄ³ÇSEPTAËíµÀ¹Ø±ÕÖÁ8ÔÂ19ÈÕ</a><br></h3>¼Ì·Ñ³Ç°åÀõ½Ö£¨Chestnut Street£©¹«Â·ÇÅÒòÐÞÉÉ¹Ø±Õºó£¬8ÔÂ9ÈÕÍí£¬·Ñ³ÇÖÐÐÄ³ÇSEPTAµØÌúºÍTrolleyµç³µµØÏÂËíµÀÒ²¹Ø±Õ½øÐÐÄê¶È¡°¿ìÉÁÎ¬ÐÞ¡±£¬Ô¤¼Æ8ÔÂ19ÈÕÁè³¿Íê¹¤¡£
+
+SEPTAµØÏÂËíµÀ´Ó13½ÖÖÁ40½Ö¹Ø±Õ¡£ÔÚÎ¬ÐÞÆÚ¼ä£¬10¡¢11¡¢13¡¢34ºÍ36 Â·³µÍ£ÔË¡£¾Ý SEPTA¹«¸æ£¬Õâ´Î¹Ø±ÕÆÚ¼ä£¬½«ÔÚ.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê08ÔÂ16ÈÕ 9:36 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/15/n11456012.md#1" target="_blank">µÂÀ­»ªÖÝÄ«Î÷¸ç¾í±ý½Ú</a><br></h3>µÂÀ­»ªÖÝÍþÃ÷¶ÙÊÐTUBMAN-GARRETT ºÓ±õ¹«Ô°½«ÓÚ8ÔÂ17ÈÕ¾ÙÐÐÄ«Î÷¸ç¾í±ý£¨Taco£©½Ú¡£ÓÐ25¶à¼ÒÖÜ±ß²ÍÌü½«ÍÆ³ö75ÖÖ¿ÚÎ¶µÄÄ«Î÷¸ç¾í±ýºÍÒûÁÏ¡£ËùÓÐÊ³ÎïºÍÒûÁÏÒÔ´ú¹º¾íÂò£¨Voucher£©£¬ÓÎ¿ÍÐëÊÂÏÈÔÚÊÛÆ±´¦¹ºÂò´ú¹º¾í£¬µÖ×÷ÏÖ½ðÊ¹ÓÃ¡£¾í±ý½Ú²»½öÌá¹©ÃÀÎ¶µÄÄ«Î÷¸ç¾í±ý£¬»¹ÓÐÒôÀÖØ¼ÒÕÊõØ¼ÉçÇø»î¶¯¡£ÇëÏßÉÏ¹ºÆ±£¬ÔçÄñÓÐsrc="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê08ÔÂ16ÈÕ 9:35 PM			.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê08ÔÂ16ÈÕ 9:35 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/15/n11456004.md#1" target="_blank">PECO¶àÔªÎÄ»¯ÏµÁÐ&#8211;¼ÓÀÕ±Èº£ÎÄ»¯½Ú</a><br></h3>PECOÄÜÔ´¹«Ë¾Óë¼ÓÀÕ±È½Ú×éÎ¯»áºÏ×÷¾Ù°ìÀÕ±Èº£ÎÄ»¯½Ú£¬½éÉÜ¼ÓÀÕ±Èº£µÄÒôÀÖ¡¢ÃÀÊõ¡¢·çË×ºÍÒûÊ³µÈ¡£°üÀ¨ÏÖ³¡ÒôÀÖ¡¢»§ÍâÎèÌ¨¡¢·þ×°×ßÐã¡¢¶ùÍ¯ÓÎÀÖ¡¢¼ÍÄîÆ·¡¢»­Á³¡¢¹¤ÒÕÕ¹ÊÛµÈ¡£½ñÄêÊÇµÚÈýÊ®Èý½ì¡£¼ÓÀÕ±Èº£½ÚÊÇPECO¶àÔªÎÄ»¯ÏµÁÐµÄÒ»²¿·Ö¡£¼ÓÀÕ±ÈÑØº£µØÇøÓÐ14¸öµº¹ú£¬Ãñ·çÈÈÇé¡¢»îÆÃ¡£ÍøÕ¾£ºwww.phillycaribbeanfest.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê08ÔÂ16ÈÕ 9:34 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/16/n11457885.md#1" target="_blank">½ÌÓý²¿ÑÐÄâ ÖÐÐ¡Ñ§¹ú¼Ê½ÌÓý2.0</a><br></h3>Îª¼ÓËÙ¹úÄÚÖÐÐ¡Ñ§µÄ¹ú¼Ê»¯£¬½ÌÓý²¿ÒÑÑÐÄâ¡°ÖÐÐ¡Ñ§¹ú¼Ê½ÌÓý°×Æ¤Êé2.0¡±²Ý°¸£¬°üÀ¨ËÉ°óÖÐÐ¡Ñ§¹ú¼Ê½»Á÷ÓëºÏ×÷µÄ·¨¹æµÈ£¬²¢Ô¤¼ÆÔÚ6ÄêÄÚ£¬±àÓâÐÂÌ¨±Ò10ÒÚÔªÔ¤Ëã£¬¸Ã¼Æ»®Ô¤¼Æ½ñÄêµ×ÕýÊ½¹«²¼£¬²¢ÓÚ109ÄêÆð¿ªÊ¼ÊµÊ©¡£......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê08ÔÂ16ÈÕ 9:34 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/15/n11455997.md#1" target="_blank">·Ñ³ÇÍ¼Êé¹Ý·¿µØ²ú´û¿î½²×ù</a><br></h3>¶«±±ÇøÍ¼Êé¹ÝÓë¶«±±·Ñ³Ç¹«ÒæÐ­»á(NEPCA-CT)ÁªºÏÓÚ±¾ÖÜÈÕ¾Ù°ì·¿µØ²ú´û¿î½²×ù¡£Ö÷½²¼Î±ö£ºÑÇÖÞÒøÐÐ×Ü²ÃºÍ´´°ìÈËÍõâù¿µÏÈÉú£¬20ÄêÀ´Ö²¸ù·Ñ³Ç£¬·þÎñÉçÇø£¬ÈÈÐÄ¹«Òæ£¬°éËæ·Ñ³Ç»ªÈËÉçÇø¹²Í¬³É³¤¡£ÄÚÈÝ£º¸÷ÖÖ·¿ÎÝ´û¿îºÍÉÌÒµ´û¿î£¬ÉêÇëÌõ¼þ£¬ÉóºË¹ý³Ì, ´û¿î×Ê¸ñºÍÄúÄÜ´û¶àÉÙ¿î¡£
+
+Ê±¼ä: 8ÔÂ18ÈÕ£¨ÖÜÈÕ£©, ÏÂÎç2µãÖÁ4µã
+.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê08ÔÂ16ÈÕ 9:34 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/15/n11455983.md#1" target="_blank">´óÎ÷Ñó³Ç·ÉÐÐÌØ¼¼±íÑÝ</a><br></h3>ÄÏÐÂÔóÎ÷ÖÝº£ÓòÄ¾Õ»µÀÏÂÖÜ¾Ù°ì¡°´óÎ÷Ñó³Çº½¿ÕÕ¹¡±(Atlantic City Air Show)¡£½ñÄê²ÎÓë±íÑÝµÄÓÐÃÀ¹ú¿Õ¾üÀ×Äñ£¨U.S.A.F. Thunderbirds£©¡¢ÃÀ¹úÂ½¾ü½ðÆïÊ¿£¨Army Golden Knights£©¡¢»Ê¼Ò¿Õ¾üºì¼ý£¨Royal Air Force Red Arrows£©£¬ÒÔ¼°GEICO Sk.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê08ÔÂ16ÈÕ 9:33 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/15/n11455972.md#1" target="_blank">·Ñ³ÇÉùÔ®³¬3ÒÚÖÐ¹úÈËÈýÍË»î¶¯</a><br></h3>ÎªÁËÈÃ¸ü¶àÓÐÕýÒåÁ¼ÖªµÄÈËÃÇÈÏÇåµ±Ç°ÖÐ¹ú´óÂ½µÄÐÎÊÆ£¬Ñ¡ÔñÍË³öÖÐ¹²µÄµ³¡¢ÍÅ¡¢¶Ó×éÖ¯£¬Ô¶ÀëÔÖ»ö£¬·Ñ³ÇÍËµ³·þÎñÖÐÐÄ½«ÓÚ8ÔÂ24ÈÕ£¨ÖÜÁù£©ÔÚ·Ñ³ÇÖÐ¹ú³ÇÅÆÂ¥ÏÂ¼¯»á£¬ÉùÔ®3ÒÚ3Ç§9°Ù¶àÍòÈýÍËÓÂÊ¿£¬Í¬Ê±Ïò»ªÈËÍ¬°ûÌá¹©¡°ÈýÍË¡±·þÎñ¡£
+
+Ê±¼ä£ºÏÂÎç2µãÖÁÏÂÎç4µã
+µØµã£º10½Ö ºÍArch ½Ö
+
+ÔðÈÎ±à¼­£ºÁÖÃµ......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê08ÔÂ16ÈÕ 9:33 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/16/n11457887.md#1" target="_blank">ÖìÁ¢Â×·ÃÎÊ°×¹¬Ç¿µ÷¡°ÃñÖ÷¡¢Ç×ÃÀ¡±Á¢³¡</a><br></h3>Ç°¹úÃñµ³Ö÷Ï¯ÖìÁ¢Â×£¬ÓÚÃÀ¹úÊ±¼ä15ÈÕÇ°Íù»ª¸®£¬°Ý»á°×¹¬¹ú°²»á¹ÙÔ±ÓëÑ§½çÖÇ¿â¡£ÖìÁ¢Â×ÔÚÁ³ÊéÖ¸³ö£¬¹úÃñµ³³¤ÆÚÈ±·¦»ª¸®´ú±í£¬Ðí¶àÒéÌâÁ¢³¡Ú¹ÊÍÊ§Õæ£¬Á½ÌìÐÐ³ÌÏ£ÍûÄÜÎª¹úÃñµ³¶à¹µÍ¨ÃÀÌ¨¹ØÏµ£¬ÒÔ¼°Á½°¶¹ØÏµ¹Ûµã£¬¡°²»ÄÜÈÃÃÀÌ¨¹ØÏµ±»Å¤ÇúÎªÃÀÂÌ¹ØÏµ¡±¡£......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê08ÔÂ16ÈÕ 9:32 PM			</td></tr>
 </table><h4>ÊÖ»úÉÏ³¤°´²¢¸´ÖÆÏÂÁÐÁ´½Ó»ò¶þÎ¬Âë·ÖÏí±¾ÎÄÕÂ£º</h4>https://github.com/dfcbzs/djy/blob/master/gb/n24hr.md#1<br><a href="https://github.com/dfcbzs/djy/blob/master/gb/n24hr.md#1"><img src="http://www.hehaibao.com/qr/index.php?m=1&e=L&p=10&t=&d=https://github.com/dfcbzs/djy/blob/master/gb/n24hr.md%231" title="·ÖÏí±¾ÎÄÕÂ"></a><br>Ô­ÎÄµØÖ·£º <a href="http://www.epochtimes.com/gb/n24hr.htm">http://www.epochtimes.com/gb/n24hr.htm</a>    £¨¹úÄÚÐè<a href="https://git.io/fjmgJ">ÏÂÔØ·­Ç½Èí¼þ</a>²ÅÄÜ·ÃÎÊ£©</p>
