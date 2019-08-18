@@ -430,10 +430,6 @@ Diane³ÂÆ¾×Å¶Ô¿Í»§µÄ·þÎñÈÈ³À¡¢ÓÃÐÄ¡¢¼á³Ö¡¢³Ï¿Ò¼°×¨ÒµµÄ¹¤×÷Ì¬¶È£¬Ê¹Í¶±£µÄ¿Í»§ÁË½â±
 
 Ð¡ÀÖÒÔµ¥ÄþÔìÐÍÁÁÏà£¬Ëû±íÊ¾´ÓÐ¡¾Í·Ç³£Ï²»¶µ¤Äþ¿ã£¬²»½öÊÇÈÕ³£´©´î±Ø±¸£¬»¹.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê08ÔÂ16ÈÕ 10:20 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/16/n11457294.md#1" target="_blank">×éÍ¼£º8.16Ï¤Äá·´ËÍÖÐ¼¯»á Ç×¹²ÍÅÌå¸ÉÈÅ</a><br></h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/16/n11457294.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/08/1908160802361528-150x120.jpg" align ="left"></a>¾Ý°ÄÖÞÈË±¨£¨The Australian) ±¨µ¼£¬¸Ã¼¯»á³ýÁËÉùÔ®ÈÕÇ°ÔâÏã¸Û¾¯·½¿ªÇ¹´òÉËÓÒÑÛµÄÉÙÅ®£¬Ç´Ôð¸Û¾¯ÀÄÓÃÎäÁ¦ºÍ±©Á¦Íâ£¬Í¬Ê±Ò²¶ÔÓÚÈÕÇ°°ÄÖÞÀ¥Ê¿À¼´óÑ§Ð£ÄÚ¸ÛÉúÉèÖÃÁ¬Ù¯Ç½Ôâµ½¶ñÒâÆÆ»µµÄÊÂ¼þ£¬±í´ïº´ÎÀÑÔÂÛ×ÔÓÉµÄÁ¢³¡¡£²Î¼Ó¼¯»áµÄÊý°ÙÎ»ÃñÖÚ£¬¾Ù×ÅÕ¹°åºÍ±êÓï±í´ïËßÇó¡£......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê08ÔÂ16ÈÕ 10:16 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/15/n11455958.md#1" target="_blank">ÐÂÖÝÒªÇóÍ¬ÐÔÁµ½ÌÓý Õò³¤·´¶Ô</a><br></h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/15/n11455958.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/08/Al-Cirulli-Mayor-300x245-150x120.jpg" align ="left"></a>ÐÂÔóÎ÷ÖÝ×î½üÍ¨¹ýÐÂ·¨ÂÉ£¬ÒªÇó¹«Á¢Ñ§Ð£°ÑÓÐ¹ØÍ¬ÐÔÁµÀúÊ·ÒÔ¼°ÖøÃûÍ¬ÐÔÁµÕßµÄ¹±Ï×ÁÐÎª³õÖÐÓë¸ßÖÐµÄ±ØÐÞ¿Î¡£ÐÂÔóÎ÷ÖÝBarnegatÕòÕò³¤ÆæÂ³Àû£¨Alfonso Cirulli£©¶Ô´Ë±íÊ¾·´¶Ô¡£
-
-ÔÚ8ÔÂ6ÈÕµÄÕòÎ¯»áÉÏ£¬ÆæÂ³ÀûÔÚÕò³¤±¨¸æÖÐËµ£º¡°Ã»ÓÐÍÅÌåÓÐÈ¨Ç¿ÖÆËûÈËÄ³ÖÖÐÅÑö¡¢°þ¶áµÚÒ»ÐÞÕý°¸µÄÈ¨Àû£¬ºÍ°þ¶á¸¸Ä¸½ÌÓýº¢×ÓµÄÕýµ±È¨Àû¡£¡±.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê08ÔÂ16ÈÕ 10:11 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/16/n11457614.md#1" target="_blank">Ì¨Ö÷¼Æ×Ü´¦¹À½ñÄêGDPÉÏÐÞÖÁ2.46%</a><br></h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/16/n11457614.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/08/PO_X8247-150x120.jpg" align ="left"></a>Ö÷¼Æ×Ü´¦¹«²¼×îÐÂ¾­¼ÃÔ¤²â£¬½ñÄê¾­¼Ã³É³¤ÂÊÎª2.46%£¬½ÏÉÏ´ÎÔ¤²âÖµ£¬ÉÏÐÞ0.27¸ö°Ù·Öµã£¬Ô¤²â2020Äê¾­¼Ã³É³¤Îª2.58£¥¡£Ö÷¼Æ×Ü´¦±íÊ¾£¬¹ú¼Ê¼äÃ³Ò×Õù¶ËÑÓÐø¼°ÖÇ»ÛÊÖ»úµÈÐÐ¶¯Í¨Ñ¶²úÆ·ÂòÆøµÍÃÔ£¬Ó°ÏìÈ«Çò¾­¼Ã³É³¤±íÏÖ£¬²»¹ý£¬Ã³Ò×Õù¶ËÒ²´ÙÊ¹³§ÉÌ»ØÌ¨À©Ôö²úÄÜ£¬µÖÏú²¿·Ö¸ºÃæÓ°Ïì¡£......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê08ÔÂ16ÈÕ 10:07 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/19/n11461806.md#1" target="_blank">ÔâÆøÇ¹ÉäÖÐ ±ö¶ÙÅ®×ÓÊÜÇáÉË</a><br></h3>Ò»Ãû±ö¶ÙÊÐÅ®×ÓÖÜÈÕ±»ÆøÇ¹ÉäÖÐÊÜÇáÉË¡£......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê08ÔÂ19ÈÕ 4:18 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/18/n11461675.md#1" target="_blank">¿ªºÀ³µ×¡Á®×âÎÝ »áÊÇÊ²Ã´ÈË£¿</a><br></h3>¶àÂ×¶àÊÐÕþ¸®×ÊÖúµÄÁ®×â¾ÓËù£¨Toronto Community Housing£©£¬ÊÇ¸øµÍÊÕÈë¼ÒÍ¥×¡µÄ¡£µ«ÊÇ£¬ÓÐÐ©×¡¿Í¿ªµÄÈ´ÊÇºÀ³µ£¬ÓëÕâ½ÖÇøµÄÊÕÈëÇé¿öÍêÈ«²»Ïà·û£¬¶øÇÒ¿´ÆðÀ´Óë·¸×ïÏà¹Ø¡£
 
