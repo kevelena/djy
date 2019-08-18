@@ -34,7 +34,17 @@
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/16/n11458419.md#1" target="_blank">张林：中共在香港大玩黑帮无间道</a><br></h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/16/n11458419.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/08/GettyImages-1158322928@1200x1200-600x400-1-150x120.jpg" align ="left"></a>自从1991年8月，苏共寿终正寝之后，中共就成为全世界最大的黑帮。虽然普京2000年上台后，一直想夺回黑帮老大地位。无奈没有类似香港台湾这样的殖民地买办经济体帮扶，俄罗斯经济始终低迷。兜里没钱，硬不起来，俄罗斯不得不屈居全世界黑帮老二的地位。
 
 靠美国恩赐的WTO地位，以及香港台湾的戮力帮扶，中共GDP一路窜升，尽.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月17日 1:03 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/16/n11458294.md#1" target="_blank">宁静：香港的孩子在等待你的选择</a><br></h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/16/n11458294.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/08/475bb8f3f49bfe340f08aa573a8d90a6-150x120.jpg" align ="left"></a>中国是一个拥有五千年文明的古国，史称“神洲”，......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月16日 11:22 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/18/n11461683.md#1" target="_blank">郑纯清：川普“推建议”与习近平“接地气”</a><br></h3>一刻解决港问题，川普帮习出主意。
+
+中共外交部呛声，内政不许外干预。
+
+好心被当驴肝肺，川普似讨没味趣。
+
+建议不管谁提出，只要对的就采取。
+
+说的比唱还好听，可惜系毛愚民曲①。
+
+川普言实非异议，习近平讲接地气。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月19日 7:16 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/18/n11461658.md#1" target="_blank">千瑞：把中共埋葬</a><br></h3>天灭中共风乍起，万道雷霆震天地。
 天灭中共云飞扬，前头就是新世纪。
 香港！香港！
