@@ -41,7 +41,7 @@
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/15/n11456127.md#1" target="_blank">颜丹：医生搞“假捐献”被抓在掩盖什么？</a><br></h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/15/n11456127.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/08/Tribunal_1-g-600x400-150x120.jpg" align ="left"></a>发生在数月前的“安徽一死者肝肾被‘假捐献’，6名医护人员涉侮辱尸体罪被捕”之事，突然于近日被大陆官媒拿出来翻炒。据报道，搞“假捐献”的始作俑者，直指安徽某县人民医院的ICU主任杨某。
 
 从披露的细节来看，这位杨主任造假的过程极为诡异。当他发现患者李某“处于脑死亡状态”时，就“告知家属随时有心跳骤停可能”。由于“患者.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月16日 5:36 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/18/n11460562.md#1" target="_blank">陆客：和老朽们回忆一句话——历史是混不过去的</a><br></h3>历史不是一个人的独行，谁做了什么，一千双一万双眼睛看着呢。编瞎话是没用的，历史是混不过去的。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月18日 12:19 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/13/n11451364.md#1" target="_blank">《共产主义黑皮书》：苏联坦克进入匈牙利</a><br></h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/13/n11451364.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2017/12/dcbb5ad1ea37934a168afd29d68d142e-150x120.jpg" align ="left"></a>苏联的坦克首次进行干预是在1953年6月17日的东德，镇压工人们在东柏林和其它城市自发的起义，抗议政府在工作场所制造的困难的条件。根据最近的研究，在骚乱中和随后的镇压中至少有51人死亡：其中2人被坦克碾压、7人被苏联法院判死刑、3人被德国法院判死刑、23人由于在冲突期受伤不治而身亡，还有6名安全部队成员丧命。截至6月3.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月16日 4:14 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/18/n11460526.md#1" target="_blank">郑纯清：强推送中恶法 旨在连根拔瓜秧</a><br></h3>红毒瓜秧黄，
 
 明珠瓜好香。
