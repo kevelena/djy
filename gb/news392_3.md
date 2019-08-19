@@ -27,9 +27,20 @@
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/4/18/n11196766.md#1" target="_blank">【征文】张东园：中国国学大师的血泪遭遇(2)</a><br></h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/4/18/n11196766.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/04/1012171836432039-546x400-546x400-1-150x120.jpg" align ="left"></a>与郭沫若相比较，还有一些国学大师因为传统知识份子的傲骨，并未向中共完全屈服，而遭到中共残酷迫害。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月12日 7:00 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/4/18/n11196004.md#1" target="_blank">【征文】张东园：中国国学大师的血泪遭遇(1)</a><br></h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/4/18/n11196004.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/04/1012171836432039-546x400-150x120.jpg" align ="left"></a>中国传统社会讲“士、农、工、商”四个阶层，其中“士”简言之就是知识份子。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月12日 6:57 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/12/n11447444.md#1" target="_blank">王友群：林郑月娥上台、下不了台与下台</a><br></h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/12/n11447444.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/07/20190710-HUAMING-HONGKONG-01-150x120.jpg" align ="left"></a>2017年3月14日，香港特首选举期间，在7家电台、电视台联办的选举论坛上，候选人林郑月娥说：“如果香港人的主流意见认为我无办法继续担任行政长官，我是会辞职。”......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月12日 3:49 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/12/n11447339.md#1" target="_blank">陈思敏：中共忌惮美国扩大出口管制</a><br></h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/12/n11447339.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2018/11/8c0d660b7e951a8a2c0c079289c0ceb0-150x120.jpg" align ="left"></a>目前中共拖延签定中美贸易协议貌似在打“如意算盘”，其实是行之有效的应对工具阙如。而普遍认为，川普比关税更强大的工具，不是针对进口，是出口管制。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月12日 3:24 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/12/n11447277.md#1" target="_blank">曾慧：中共是流氓政权?</a><br></h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/12/n11447277.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2018/02/a1702d7f081cd9f5bc80a3961488f07f-150x120.jpg" align ="left"></a>贰千零壹年二月中旬，我和三个同修在北京住所深夜被警察抄家，并绑架至北京海淀公安局的分局看守所。海淀看守所警察每天晚上审问我，我一直保持沉默。
-二十七日下午约五点，狱警在海淀分局女区一楼筒道里一喊我名字，号里的人听到，便把我推到门口，女警打开铁门，我被推出101号铁门。监号里的人把两个脏臭的被子扔给我说：你要转走了。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月12日 2:45 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/14/n11452639.md#1" target="_blank">千瑞：告香港！告中国！告世界！</a><br></h3>叹香港，己亥不平静！
+问中国，何处是引领！
+看世界，灭共天注定！
+香港在怒吼，中国在黑暗中叹息。
+香港在燃烧，中国在悲伤里哭泣。
+香港在呼唤，中国在黎明前沉寂。
+魔鬼撕下了骗人的面具，獠牙血在滴。
+蛇蝎的心肠，鬼兽的行径，积恶已然成习。
+流氓赤裸了丑陋的身体，跳墙狗在急。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月14日 6:27 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/14/n11452364.md#1" target="_blank">李春草：香港局势有感?</a><br></h3>止水鉴乱云，厚德服万邦；
+政酷争逃逸，腥膻聚蝇虻；
+送中腾匪气，坚韧识港养；
+六四遗永咒，衰体忍添疮？
+天道自公正，秦桧跪岳王。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月14日 6:17 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/14/n11452353.md#1" target="_blank">祝君安：捣练子?时代革命的序幕</a><br></h3>台湾动
 香江汹
 遍地开花反送中
