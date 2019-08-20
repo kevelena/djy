@@ -713,5 +713,4 @@ BBC采访的目击者说，一名自杀式炸弹袭击者在婚礼仪式上引爆了爆炸物。
 港人坚韧反送中，娥傀安能久司晨；
 西来幽灵祸中华，远胜武氏杀唐人；
 天必佑华国祚绵，浴火重生再鼎盛。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月18日 12:31 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/18/n11460485.md#1" target="_blank">身障画家的浮光掠影 港艺洪娴柔油画个展</a><br></h3>身障画家洪娴柔老师即日起在台中市港区艺术中心展出“浮光掠影–洪娴柔油画个展”，洪老师参加脊髓损伤者协会绘画班课程后，她的生命从黑暗中迎向七彩光明，28件个展油画作品，展现洪娴柔丰富的生命历程，值得民众仔细品味。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月18日 11:16 AM			</td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/dfcbzs/djy/blob/master/gb/n24hr.md#1<br><a href="https://github.com/dfcbzs/djy/blob/master/gb/n24hr.md#1"><img src="http://www.hehaibao.com/qr/index.php?m=1&e=L&p=10&t=&d=https://github.com/dfcbzs/djy/blob/master/gb/n24hr.md%231" title="分享本文章"></a><br>原文地址： <a href="http://www.epochtimes.com/gb/n24hr.htm">http://www.epochtimes.com/gb/n24hr.htm</a>    （国内需<a href="https://git.io/fjmgJ">下载翻墙软件</a>才能访问）</p>
