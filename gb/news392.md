@@ -22,6 +22,10 @@
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/19/n11462592.md#1" target="_blank">【娱乐笔记】跟随内心的善 不要做中共护旗手</a><br></h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/19/n11462592.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/07/GettyImages-1156972297-150x120.jpg" align ="left"></a>但是，现在一些大陆及香港艺人却纷纷成为了“护旗手”，这件事让人感到难过和意外，这些艺人们渴望台湾的民主自由，却成了扼杀民主自由的中共政党的“护旗手”，这是一件非常吊诡的事情，曾经亲身接触过你们，我坚持相信你们的真心——在说出珍惜台湾、向往自由的那个时刻。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月19日 2:28 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/19/n11462102.md#1" target="_blank">王友群：中共在香港问题上与整个自由世界为敌</a><br></h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/19/n11462102.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/08/190701101521100615-600x400-150x120.jpg" align ="left"></a>香港，曾经有一个响亮的名字——“东方之珠”。2019年的今天，香港，成了中国黎明前的黑夜里的“希望之灯”，成了全球反抗中共暴政的前沿阵地，成了未来自由中华的催生地，成了宇宙正邪大战的人间试炼场。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月19日 1:05 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/18/n11462002.md#1" target="_blank">石铭：香港局势引国际关注 中共暴露真面目</a><br></h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/18/n11462002.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/08/190707083211100311-600x400-1-150x120.jpg" align ="left"></a>香港的“反送中”运动，从6月初到今天已经两月有余，香港的局势越来越引发国际社会对“六四屠杀”重演的担忧。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月19日 8:33 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/21/n11467546.md#1" target="_blank">祝君安：送终曲</a><br></h3>港府装傻中央愁，赤警凶残黑道纠；
+欲动魔兵忧外产，举棋不定看美欧；
+睁眼说谎不顾羞，只因日暮没依投；
+关税屠夫无兼得，破党而出有奔头。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月21日 2:57 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/21/n11467290.md#1" target="_blank">理悟：恶法“送中”</a><br></h3>中共港共推恶法，送中条例露狰狞。
 欲关港民铁笼里，抓打杀判任党行。
 一国两制成党制，港民治港化泡影。
@@ -41,16 +45,5 @@
 一旦两制归一制，东西绝缘指日亡。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月19日 1:44 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/19/n11462539.md#1" target="_blank">陆亮：中元节共产党严禁传统祭祖活动</a><br></h3>中元节，每年农历七月十五日（有些地方是十四日），是汉民族祭祀祖先祈福辟邪的传统节日，节日起源于上古时代的祭祀文化，有着敬祖感恩尽孝的内涵，与除夕，清明节，重阳节均是中华民族传统的祭祖大节。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月19日 1:05 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/19/n11462060.md#1" target="_blank">连天雪：简评香港局势</a><br></h3>近一段时间以来，由于中共公然破坏自己承诺的“一国两制”，想要在香港强行通过所谓“送中条例”，招致绝大多数香港市民的坚决反对，连日来，大批香港市民走上街头，以不同形式表达对中共及香港现特区政府的抗议，单次最高上街示威游行人数超过200万人，由于中共及特区政府拒不接受香港市民的合理诉求，并且出动大批港警及大陆的便衣进行暴力.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月19日 9:03 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/18/n11461683.md#1" target="_blank">郑纯清：川普“推建议”与习近平“接地气”</a><br></h3>一刻解决港问题，川普帮习出主意。
-
-中共外交部呛声，内政不许外干预。
-
-好心被当驴肝肺，川普似讨没味趣。
-
-建议不管谁提出，只要对的就采取。
-
-说的比唱还好听，可惜系毛愚民曲①。
-
-川普言实非异议，习近平讲接地气。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月19日 7:16 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/news392.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/dfcbzs/djy/blob/master/gb/news392_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/dfcbzs/djy/blob/master/gb/news392_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/dfcbzs/djy/blob/master/gb/news392_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/dfcbzs/djy/blob/master/gb/news392_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/dfcbzs/djy/blob/master/gb/news392_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/dfcbzs/djy/blob/master/gb/news392_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/dfcbzs/djy/blob/master/gb/news392_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/dfcbzs/djy/blob/master/gb/news392_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/dfcbzs/djy/blob/master/gb/news392_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/dfcbzs/djy/blob/master/gb/news392_2.md#1">下一页</a></h3></td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/dfcbzs/djy/blob/master/gb/news392.md#1<br><a href="https://github.com/dfcbzs/djy/blob/master/gb/news392.md#1"><img src="http://www.hehaibao.com/qr/index.php?m=1&e=L&p=10&t=&d=https://github.com/dfcbzs/djy/blob/master/gb/news392.md%231" title="分享本文章"></a><br>原文地址： <a href="http://www.epochtimes.com/gb/news392.htm">http://www.epochtimes.com/gb/news392.htm</a>    （国内需<a href="https://git.io/fjmgJ">下载翻墙软件</a>才能访问）</p>
