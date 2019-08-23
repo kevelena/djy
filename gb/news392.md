@@ -22,22 +22,9 @@
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/21/n11467049.md#1" target="_blank">横河：中国留学生海外攻击反送中支持者的背后</a><br></h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/21/n11467049.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/08/IMG_4628-600x400-1-150x120.jpg" align ="left"></a>上个周末，全世界数十个城市举行支持香港反送中抗议活动，不少地方也遭到大批有组织的包括中国大陆留学生的亲共人士的辱骂甚至肢体攻击。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月21日 4:06 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/21/n11467601.md#1" target="_blank">横河：川普表态 香港局势如何发展</a><br></h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/21/n11467601.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/08/f9dc5104b56b120a213b93091d3684e8-150x120.jpg" align ="left"></a>主持人：香港局势持续升温，除了中共大批的武警和军队集结在香港边境，官媒更是给示威群众扣上了恐怖组织的帽子；胡锡进甚至说港警当场拔枪射击也是正当的。这个颇有山雨欲来风满楼的感觉。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月21日 3:44 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/20/n11466581.md#1" target="_blank">王友群：香港人站在了历史剧变的最前沿</a><br></h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/20/n11466581.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/08/4d1710f659c3ee8ab400e6787db372ef-600x400-150x120.jpg" align ="left"></a>历史的车轮，穿越重重迷雾，按照既定的轨道，奔腾向前。19世纪40年代末，“一个幽灵，共产主义的幽灵在欧洲徘徊。”到了20世纪80年代末90年代初，共产主义在苏联东欧的统治终结，苏共亡党，苏联亡国。进入2019年，全世界最后一个最大的共产主义政党——中共，陷入全面危机中，正朝着“中国共产党亡”的终点狂奔。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月21日 12:01 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/23/n11472459.md#1" target="_blank">千瑞：香港  你是……?</a><br></h3>香港，你是一个大舞台：
-魔鬼展示了邪恶的本性。
-世界看清了红色的鬼影。
-勇气在生死中高扬雄壮。
-良知在天地间奔腾唱响。
-谎言堆砌了欺人的蛊惑。
-虚伪表演了超人的骗术。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月23日 3:04 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/23/n11472438.md#1" target="_blank">吐为快：香港故事</a><br></h3>金融中心洗钱港，党贵温柔美梦乡
-法制刺痛独裁郎，自由生恨专制王
-赤龙搅江江漫巷，独眼何惧核弹狂
-韵诗孤胆联合国，稚童领喊正气扬
-民意炎炎连侬墙，血光溅溅元朗帮
-魔军压城风满楼，壮士争渡易水漾
-誓将微躯挡红潮，不教马列侵香港 
-不撤不散和理非，但使甘地也泪滂......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月23日 2:55 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/23/n11472369.md#1" target="_blank">程翔序林保华《我的杂种人生》：从归国到去国</a><br></h3>二00五年我因为一篇质疑中共同俄罗斯签署新边界条约的合理性和合法性，被中共控以间谍罪而身陷牢狱时，香港和国际很多朋友都为营救我而奔走呼号发声，其中一位就是林保华兄。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月23日 2:46 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/21/n11467067.md#1" target="_blank">觅真：政法委是制造冤案的幕后黑手</a><br></h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/21/n11467067.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2018/06/1-80-150x120.jpg" align ="left"></a>据明慧网二零一九年八月十八日报导：近日，四川省巴中市巴州区法院对九名法轮功学员做出枉法判决，其中七位老年人：89岁的张新伟，3年；82岁的张明朗，5年；71岁的康尊六，3年6个月；71岁的祝天贵，2年6个月；70岁的岳映聪，女，4年；70岁的代万义，男，3年；62岁的周丽华，女，4年；都被勒索不同数目的罚款。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月21日 11:31 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/20/n11466367.md#1" target="_blank">周晓辉：推特脸书突转向 对北京意味着什么？</a><br></h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/20/n11466367.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/08/GettyImages-187250105-600x400-1-150x120.jpg" align ="left"></a>推特和脸书“不约而同”地在同一时间对外公开转向，公开拒绝中共的宣传，是对中共大外宣在海外争夺话语权的努力的又一记重击，而此前，中共几大海外媒体已被要求登记为外国代理人，采访受到限制。这意味着北京在国际上胡言乱语的重要通道基本被封杀，灭共在西方世界正赢得越来越多的同盟者。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月21日 5:08 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/20/n11466311.md#1" target="_blank">【禁文】多伦多法拉利那句穷X叫醒了谁？</a><br></h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/20/n11466311.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/08/1111-150x120.jpg" align ="left"></a>中共在海外掀起的大陆留学生支持香港警察的集会上，澳大利亚和多伦多集会上的成队的法拉利豪车吸引了不少人的眼球，这些富二代官二代们更用脏话骂现场的香港示威者“穷逼”。这一骂倒是马骂醒了不少国人。近日，微信上一篇“多伦多法拉利那句穷逼叫醒了谁”文章获得很多沉默多日的国人认同，但很快被删......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月21日 1:08 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/23/n11471931.md#1" target="_blank">吐为快：香港故事</a><br></h3>金融中心洗钱港，党贵温柔美梦乡。
 法制刺痛独裁郎，自由生恨专制王。
 赤龙搅江江漫巷，独眼何惧核弹狂。
