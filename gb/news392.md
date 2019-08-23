@@ -21,6 +21,7 @@
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/17/n11460175.md#1" target="_blank">《共产主义黑皮书》：“后恐怖时期”的中欧</a><br></h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/17/n11460175.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2017/12/dcbb5ad1ea37934a168afd29d68d142e-150x120.jpg" align ="left"></a>1956年和1968年的大暴动及其被苏联摧毁的事实，揭示了镇压逻辑的另一个重要方面：一个国家的事件会在其它地方产生反响，尤其是当有军事参与的时候。由于1956年的匈牙利革命，捷克斯洛伐克共产党内后斯大林主义者领导人，准备好了从捷克斯洛伐克派出部队到匈牙利。与此同时，它加强了国内的压迫，把刚放出来的一些政治犯又送回监狱.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月22日 3:47 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/21/n11468632.md#1" target="_blank">张林：“全球支持香港联盟”成立（2）</a><br></h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/21/n11468632.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/08/1906162243372378-150x120.jpg" align ="left"></a>自从6月9日香港爆发反送中条例百万人大游行以来，纽约磐石教会就开始制作宣传品，并且在皇后区法拉盛中心图书馆定期陈列。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月22日 1:17 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/21/n11467726.md#1" target="_blank">陈思敏：北上广深加在一起也难以取替香港</a><br></h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/21/n11467726.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2006/05/605291000051767-150x120.jpg" align ="left"></a>中共先前在深圳操兵演练恐吓香港“反送中”，近日又传将加速发展深圳金融，取代香港。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月21日 7:44 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/21/n11467632.md#1" target="_blank">程晓容：美加澳新闻告诉世界 为何必须抗共</a><br></h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/21/n11467632.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/08/Toronto-22-2-150x120.jpg" align ="left"></a>近几日，来自美国、加拿大和澳洲的几条消息引发关注。中共正在把仇恨与恐怖的火焰引向世界。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月21日 4:35 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/23/n11472557.md#1" target="_blank">陈达：没想到与现世报——有感于两港警下黑手被捕?</a><br></h3>黑警动私刑，
 监控录全程。
 长官答问道，
@@ -47,14 +48,6 @@
 良知在天地间奔腾唱响。
 谎言堆砌了欺人的蛊惑。
 虚伪表演了超人的骗术。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月23日 3:04 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/23/n11472438.md#1" target="_blank">吐为快：香港故事</a><br></h3>金融中心洗钱港，党贵温柔美梦乡
-法制刺痛独裁郎，自由生恨专制王
-赤龙搅江江漫巷，独眼何惧核弹狂
-韵诗孤胆联合国，稚童领喊正气扬
-民意炎炎连侬墙，血光溅溅元朗帮
-魔军压城风满楼，壮士争渡易水漾
-誓将微躯挡红潮，不教马列侵香港 
-不撤不散和理非，但使甘地也泪滂......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月23日 2:55 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/23/n11472369.md#1" target="_blank">程翔序林保华《我的杂种人生》：从归国到去国</a><br></h3>二00五年我因为一篇质疑中共同俄罗斯签署新边界条约的合理性和合法性，被中共控以间谍罪而身陷牢狱时，香港和国际很多朋友都为营救我而奔走呼号发声，其中一位就是林保华兄。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月23日 2:46 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/23/n11471931.md#1" target="_blank">吐为快：香港故事</a><br></h3>金融中心洗钱港，党贵温柔美梦乡。
 法制刺痛独裁郎，自由生恨专制王。
