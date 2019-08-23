@@ -1009,13 +1009,4 @@ Redfin房地产经纪公司表示，在全美买家竞争力方面，Tacoma排名第四。Redfin列出的前两
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/21/n11467069.md#1" target="_blank">亚省设委员会审查毒品使用站点服务</a><br></h3>8月19日（周一），亚省政府宣布成立委员会对省内10个受监管的毒品使用站点进行审查。其中卡尔加里和埃德蒙顿的毒品使用站点均设在唐人街，备受附近居民争议。
 
 委员会成员共8人，由前埃德蒙顿警察局长克内希特（Rod Knecht）担任主席。审查主要针对犯罪率、针头碎片、社会障碍投诉、住宅物业价值、紧急医疗呼叫、及对商业.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月21日 11:42 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/21/n11467071.md#1" target="_blank">安省劳伦森大学将免儿童福利系统学生学费</a><br></h3>安省劳伦森大学（Laurentian University）近日宣布，曾在政府儿童福利系统生活的学生，可获免学费待遇。
-
-这是指曾在儿童援助协会（Children’s Aid Society）系统，或者叫作延展社会照顾（extended society care）系统内生活的孩子，他们可以免学费入读劳伦森大学。
-.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月21日 11:19 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/20/n11466702.md#1" target="_blank">联邦大选 希尔承诺“父母假”收入免税</a><br></h3>联邦保守党领袖希尔（Andrew Scheer）周二表示，如果在今年的联邦选举中获胜，他将为新父母的就业保险（EI）福利收入提供免税待遇，以减轻在加拿大抚养孩子的成本。
-
-希尔在多伦多地区一家幼儿中心参加活动时宣布了这一承诺，并称这是保守党一系列减轻加拿大家庭经济压力措施中的重要部分。
-
-据CBC报导，保守党的.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月21日 11:13 AM			</td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/dfcbzs/djy/blob/master/gb/n24hr.md#1<br><a href="https://github.com/dfcbzs/djy/blob/master/gb/n24hr.md#1"><img src="http://www.hehaibao.com/qr/index.php?m=1&e=L&p=10&t=&d=https://github.com/dfcbzs/djy/blob/master/gb/n24hr.md%231" title="分享本文章"></a><br>原文地址： <a href="http://www.epochtimes.com/gb/n24hr.htm">http://www.epochtimes.com/gb/n24hr.htm</a>    （国内需<a href="https://git.io/fjmgJ">下载翻墙软件</a>才能访问）</p>
