@@ -31,7 +31,7 @@
 
 2.国泰飞行员辞职信 揭中共黑手伸入港企内幕
 .........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月23日 11:55 PM							</td></tr>
-<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/23/n11473322.md#1" target="_blank">中共对750亿美国商品加税 纳瓦罗回应</a><br></h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/23/n11473322.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2018/09/628804f87d193116984c3641f56eec1f-150x120.jpg" align ="left"></a>8月23日，中共对美国 750 亿美元的美国商品加征 报复性关税，对此白宫贸易顾问彼得·纳瓦罗表示，美中贸易战不会导致美国的价格上涨或经济放缓。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月23日 11:10 PM							</td></tr>
+<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/25/n11475632.md#1" target="_blank">【翻墙必看】中共党媒刊文影射习近平？</a><br></h3>8月22日，中共党媒罕见发文《邓小平废除领导职务终身制》，分析认为，是在影射习近平废除国家主席任期限制。8月23日，中共宣布对750亿美元商品加征关税，川普（特朗普）迅即宣布对5,500亿美元中国商品加征关税，贸易战陡然升级；8月24日，港警狂射催泪弹暴力清场示威民众，港区人大谭惠珠呼吁北京派兵，香港局势再度恶化。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月25日 4:45 PM							</td></tr>
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/25/n11475869.md#1" target="_blank">安徽省高院前院长张坚被查</a><br></h3>8月25日，中共安徽省高级法院原院长张坚涉嫌“严重违纪违法”，目前正接受调查。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月25日 12:34 PM							</td></tr>
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/24/n11474779.md#1" target="_blank">大陆男子抱塑料瓶、泡面偷渡至台湾金门</a><br></h3>以捡拾废品为生的大陆男子，抱着用4个塑料瓶制成的浮具，带着2袋泡面，8月9日从福建省漳州港游泳偷渡至台湾金门。一上岸他就被台湾海巡署人员逮捕。这是近期不到三周在台湾金门发生的第三起偷渡案。
 
