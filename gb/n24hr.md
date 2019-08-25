@@ -463,7 +463,6 @@ Edge STÊÇ»ù½¨ÓÚµÚ¶þ´úEdge³µÐÍ£¬È«³µ¸üÓÐ»îÁ¦¸üÎªÁ÷Ïß£¬¶øÇÒÕû³µÍâÐÍÒ²ÊÇ·Ç³£±¥Âú¡£³
 2017Äê£¬¾É½ðÉ½¡¢°Â¿ËÀ¼µØÇøµÄÍ¨ÇÚÕß£¬Ã¿ÄêÓµ¶ÂÔÚÂ·ÉÏµÄÊ±¼ä³¬¹ý103¸öÐ¡Ê±£¬È«¹úÅÅ.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê08ÔÂ23ÈÕ 2:15 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/23/n11472206.md#1" target="_blank">MAMAMOOÓÚSOBA»ñ½± ´ø»ÔÈËÕÕÆ¬¶ºÈ¤Áì½±</a><br></h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/23/n11472206.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/08/190801081650100707-150x120.jpg" align ="left"></a>¡°2019 SORIBADA BEST K-MUSIC AWARDS£¨¼ò³Æ2019 SOBA£©¡±×òÌì£¨22ÈÕ£©¾ÙÐÐ°ä½±µäÀñ¡£ÊµÁ¦ÅÉÅ®ÍÅMAMAMOO±§µÃÄê¶ÈLIVE½±Óë±¾ÉÍ£¬»ªÉ¯Ò²ÄÃÏÂSocial Artist½±¡£³ÉÔ±ÃÇÔÚµäÀñÖÐ´¦´¦¹ÒÐÄ×ÅÁÙÊ±È±Ï¯»î¶¯µÄ»ÔÈË£¬²¢ÒÔÊÖ»úÏÔÊ¾³ö»ÔÈËµÄÕÕÆ¬£¬±í´ï¡°»ÔÈËÒ²ºÍÎÒÃÇÔÚÒ»Æð¡±¡£......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê08ÔÂ23ÈÕ 2:14 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/23/n11472298.md#1" target="_blank">¹ù¿ÂÍõ823»áÃæ²»Ì¸´óÑ¡ Îâ¶ØÒå£ºËûÃÇºÜÓÐÖÇ»Û</a><br></h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/23/n11472298.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/08/1908231042292384-150x120.jpg" align ="left"></a>ºèº£´´°ìÈË¹ùÌ¨Ãú¡¢Ì¨±±ÊÐ³¤¿ÂÎÄÕÜ¡¢Á¢·¨ÔºÇ°Ôº³¤Íõ½ðÆ½³öÏ¯°Ë¶þÈýÅÚÕ½61ÖÜÄê¼ÍÄî»î¶¯£¬ÈýÈËÊ×¶ÈÔÚ¹«¿ª³¡ºÏÍ¬¿ò£¬¶Ô´Ë£¬¹úÃñµ³Ö÷Ï¯Îâ¶ØÒå±íÊ¾£¬¹ù¿ÂÍõ½ñÌìÃ»Ì¸ÕþÖÎ£¬Ò²²»Ì¸Ñ¡¾Ù£¬¶¼ÊÇºÜÓÐÖÇ»ÛµÄÈË£»´«ÑÔ¹ùÌ¨Ãú¿ÉÄÜ¡°±¨±¸²ÎÑ¡¡±£¬Îâ¶ØÒåËµ£¬Õâ¸ö¾ÍÒªÉËÄÔ½îÁË!......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê08ÔÂ23ÈÕ 2:13 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/23/n11472294.md#1" target="_blank">ÖÐ¹²¾ÐÓ¢×¤¸ÛÈËÔ±ºó ¼Ó¹ú×¤¸ÛÁìÊÂ¹ÝÐû²¼£ºÔÝÍ£¹ÍÔ±¸°Â½</a><br></h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/23/n11472294.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/08/5bb0d1cec0dbda32cc83a4b414bd9efe-150x120.jpg" align ="left"></a>ÈÕÇ°·¢ÉúÓ¢¹ú×¤¸ÛÁìÊÂ¹ÝÈËÔ±Ö£ÎÄ½Ü£¨Simon Cheng£©ÔâÖÐ¹ú¹Ù·½ÐÐÕþ¾Ð²¶15Ìì£¬Íâ½çÖÊÒÉÊÇÖÐ¹²¶ÔÓÚÍâ¹úÖ§³Ö¡°·´ËÍÖÐ¡±µÄ±¨¸´ÐÐ¶¯¡£ÊÂ¼þ·¢Éúºó£¬¼ÓÄÃ´óÃ½Ìå±¨µ¼£¬¼ÓÄÃ´ó×¤¸Û×ÜÁìÊÂ¹ÝÔÝÍ£×¤¹ÝÈËÔ±Ç°Íù´óÂ½µØÇø³ö²î£¬µ«²¢Î´»ØÓ¦´Ë¾ÙÊÇ·ñÓëÖ£ÎÄ½Ü±»¾ÐÓÐ¹Ø¡£......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê08ÔÂ23ÈÕ 2:08 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/25/n11476692.md#1" target="_blank">Ã½ÌåÎó½â´¨ÆÕÖØÐÂ¿¼ÂÇÃÀÖÐÃ³Ò×Õ½ °×¹¬½âÊÍ</a><br></h3>´ó¼ÍÔª¼ÇÕßÐì¼ò×ÛºÏ±¨µ¼£©ÃÀÖÐÃ³Ò×Õ½ÊÇÆß¹ú¼¯ÍÅ£¨G7£©·å»áµÄÖØµãÒéÌâ£¬ÖÜÈÕ£¨8ÔÂ25ÈÕ£©ÃÀ¹ú×ÜÍ³´¨ÆÕ£¨ÌØÀÊÆÕ£©ÔÙ´Î±íÊ¾£¬Ëû»á¼á¶¨¶ÔÖÐ¹²½øÐÐÃ³Ò×Õ½£¬²¢Ï£Íû°Ñ¶ÔÖÐ¹úÉÌÆ·µÄ¹ØË°ÌáµÃ¸ü¸ß¡£
 
 8ÔÂ23ÈÕ£¬ÃÀÖÐÃ³Ò×Õ½¾çÁÒÉý¼¶£¬ÖÐ¹²Ðû²¼¶Ô750ÒÚÃÀÔªµÄÃÀ¹úÉÌÆ·¼ÓÕ÷±¨¸´ÐÔ¹ØË°ºó£¬´¨ÆÕÔÚÍÆÌØÉÏ·¢³ö¶àÌõÍÆÎÄÇ´ÔðÖÐ¹²£¬Ö®ºó¶Ô×Ü¼Æ5,50.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê08ÔÂ25ÈÕ 9:50 PM			</td></tr>
@@ -729,13 +728,4 @@ RTGÓÚ7ÔÂ27ÈÕÊµÏÖÁËÇáÌú¡°ÊµÖÊÐÔÍê³É (substantial completion)¡±£¬Á½Ììºó£¬¿ªÊ¼ÁËÒÆ½
 »ÑÑÔ¶ÑÆöÁËÆÛÈËµÄ¹Æ»ó¡£
 ÐéÎ±±íÑÝÁË³¬ÈËµÄÆ­Êõ¡£......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê08ÔÂ23ÈÕ 3:04 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/23/n11472369.md#1" target="_blank">³ÌÏèÐòÁÖ±£»ª¡¶ÎÒµÄÔÓÖÖÈËÉú¡·£º´Ó¹é¹úµ½È¥¹ú</a><br></h3>¶þ00ÎåÄêÎÒÒòÎªÒ»ÆªÖÊÒÉÖÐ¹²Í¬¶íÂÞË¹Ç©ÊðÐÂ±ß½çÌõÔ¼µÄºÏÀíÐÔºÍºÏ·¨ÐÔ£¬±»ÖÐ¹²¿ØÒÔ¼äµý×ï¶øÉíÏÝÀÎÓüÊ±£¬Ïã¸ÛºÍ¹ú¼ÊºÜ¶àÅóÓÑ¶¼ÎªÓª¾ÈÎÒ¶ø±¼×ßºôºÅ·¢Éù£¬ÆäÖÐÒ»Î»¾ÍÊÇÁÖ±£»ªÐÖ¡£......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê08ÔÂ23ÈÕ 2:46 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/23/n11472300.md#1" target="_blank">¿²ÄþÊÐ2019-20Äê¶ÈÃ¿»§¼ÒÍ¥Ã¿ÖÜ¶à½É72°Ä·Ö</a><br></h3>½üÈÕ£¬°Ä´óÀûÑÇÎ÷°ÄÖÝ¿²ÄþÊÐ£¨City of Canning£©Í¨¹ý2019-20Äê¶ÈÔ¤Ëã£¬Æ½¾ùÃ¿»§¼ÒÍ¥½«Ã¿ÖÜÔö¼Ó72°Ä·ÖË°·Ñ£¬Ïàµ±ÓÚÈ«Äê$37.44¡£¿²ÄþÊÐÈÔÈ»ÊÇçêË¹´ó¶¼ÊÐµØÇøÊÕ·Ñ×îµÍµÄÊÐÇøÖ®Ò»¡£
-
-¿²ÄþÊÐ2019-20Äê¶ÈÔ¤Ëã×Ê½ðÓÐ1.46ÒÚ°ÄÔª£¬·ÖÅäÊ¹ÓÃÈçÏÂ£º
-
-- 2,420ÍòÔª£¬ÓÃÓÚ¸ÄÉÆÉçÇøÉèÊ©¡£
-- .........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê08ÔÂ23ÈÕ 2:07 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/23/n11472270.md#1" target="_blank">¼ÓÖÝ°Â¿ËÀ¼-Ì´ÏãÉ½¿Í»ú½µÂäºóÂÃ¿Í±»½ô¼±ÊèÉ¢</a><br></h3>µ±¾Ö³Æ£¬8ÔÂ22ÈÕ£¬´Ó¼ÓÖÝ°Â¿ËÀ¼£¨Oakland£©·ÉÍùÌ´ÏãÉ½£¨Honolulu£©µÄÏÄÍþÒÄº½¿Õ¹«Ë¾£¨Hawaiian Airlines£©µÄ47ºÅº½°àÔÚ½µÂäºó£¬´ÓÅÜµÀÉÏÓÃ½ô¼±»¬ÌÝÊèÉ¢ÂÃ¿Í£¬ÊýÈËÒòÎüÈëÅ¨ÑÌ±»ËÍÍùÒ½Ôº¡£¾ÝÏ¤£¬¶¯ÓÃ½ô¼±»¬ÌÝÊÇÒòÎª»ú²ÕÄÚÓÐÑÌÃ°³ö£¬ÓÐ¿ÉÄÜ·É»úµÄ»õ²ÕÇøÓò×Å»ð¡£
- 
-ÏÄÍþÒÄÖÝ£¨Hawaii£©ÔËÊä²¿·¢ÑÔ.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019Äê08ÔÂ23ÈÕ 2:06 PM			</td></tr>
 </table><h4>ÊÖ»úÉÏ³¤°´²¢¸´ÖÆÏÂÁÐÁ´½Ó»ò¶þÎ¬Âë·ÖÏí±¾ÎÄÕÂ£º</h4>https://github.com/dfcbzs/djy/blob/master/gb/n24hr.md#1<br><a href="https://github.com/dfcbzs/djy/blob/master/gb/n24hr.md#1"><img src="http://www.hehaibao.com/qr/index.php?m=1&e=L&p=10&t=&d=https://github.com/dfcbzs/djy/blob/master/gb/n24hr.md%231" title="·ÖÏí±¾ÎÄÕÂ"></a><br>Ô­ÎÄµØÖ·£º <a href="http://www.epochtimes.com/gb/n24hr.htm">http://www.epochtimes.com/gb/n24hr.htm</a>    £¨¹úÄÚÐè<a href="https://git.io/fjmgJ">ÏÂÔØ·­Ç½Èí¼þ</a>²ÅÄÜ·ÃÎÊ£©</p>
