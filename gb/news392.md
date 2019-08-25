@@ -24,6 +24,13 @@
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/23/n11473087.md#1" target="_blank">黄天辰：法拉利青年对比女孩的觉醒</a><br></h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/23/n11473087.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/08/qqq-600x400-2-150x120.jpg" align ="left"></a>香港民众反送中运动绵绵不断，海外港人和支持者举办各类声援活动。同时中共也召集各地留学生、亲共团体打擂台。中共对反送中的低级造谣、抹黑和煽动，“法拉利”“下流脏话”成为海外留学生集会的标志，让全球见证了什么是中共党文化的洗脑。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月24日 12:47 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/23/n11472564.md#1" target="_blank">陈思敏：英驻港领馆雇员失联事件 党媒自曝疑点</a><br></h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/23/n11472564.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2017/09/1709212123191778-150x120.jpg" align ="left"></a>在英国驻香港总领馆雇员郑文杰自8月8日起失联半个月后，中共喉舌《环球时报》官网22日刊登一篇独家报导，标题是：英驻港领馆港籍雇员系因嫖妓在深圳被拘。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月23日 8:40 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/23/n11472113.md#1" target="_blank">程晓容：香港勇气震撼全球 北京还应看清更多</a><br></h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/23/n11472113.md#1" target="_blank"><img width="150" src="http://i.epochtimes.com/assets/uploads/2019/08/1908220733131501-1-150x120.jpg" align ="left"></a>未来事件将如何发展？对于北京当局来说，除了“香港人是压不服的”，执政者还应看清更多事实。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月23日 4:04 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/25/n11476175.md#1" target="_blank">可心：心心相连—香港之路缔造的新狮子山精神</a><br></h3> 21万港人组成了长达近60里的“香港之路（The Hong Kong Way）”全港“手牵手”人链活动，希望如当年“波罗的海三国”般，成为外媒镜头下的焦点，向世界呈现香港市民团结一致，坚持争取“反送中”等五大诉求的决心......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月25日 3:55 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/25/n11476160.md#1" target="_blank">郑纯清：“留岛不留人”实乃中共之最终底牌</a><br></h3>百万吼声频，一再置罔闻。
+特首嘴特馊，良民称暴民。
+
+恶招乱集结，党警黑手狠。
+政府耍流氓，黑社会后盾。
+五十年不变，卄二言自吞。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月25日 3:43 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/25/n11476077.md#1" target="_blank">山月：东方明珠耀香港</a><br></h3>恰逢己亥说香港，
 港人游行“反送中”。
 罢市罢工又罢课，
@@ -68,18 +75,5 @@
 地狱还清债。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月23日 3:54 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/23/n11472527.md#1" target="_blank">林保华：在大军压港的背后，中共玩啥诡计？</a><br></h3>香港反送中运动困扰中共高层。北戴河会议开了近三个星期已经落幕，习近平终于在甘肃河西走廊露面。根据内部消息披露，中共高层对反送中运动有一个共同的结论，那就是“颜色革命”。这个结论非常老套，雨伞革命也是这个结论，为免中共太过紧张而失去自制力，后来把雨伞革命弱化为“雨伞运动”。这次照样来这一套，唯一的积极结果就是面对“革命”.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月23日 3:48 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/23/n11472496.md#1" target="_blank">甑东舟：共党对中国人的变异令人不寒而栗</a><br></h3>共产党要在香港随意抓人，香港人群起维权，事隔2个多月，中国大陆这边似乎还是在按部就班工作、生活。最近，笔者与大陆一些民众谈及香港的事，居然有一半以上的人不知道真实情况，也有一部分人麻木、不感兴趣，忙着自己赚钱、上班，甚至拿中共的诬蔑新闻当说辞！......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月23日 3:30 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/23/n11472488.md#1" target="_blank">关乐：脸书扇脸推特推</a><br></h3>大势不妙党妈尿，
-恢恢天网连环套。
-送中反转被送终，
-四海聚焦全裸照。
-防火墙外忙遮丑，
-洋遮羞布又拽掉。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月23日 3:12 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/23/n11472459.md#1" target="_blank">千瑞：香港  你是……?</a><br></h3>香港，你是一个大舞台：
-魔鬼展示了邪恶的本性。
-世界看清了红色的鬼影。
-勇气在生死中高扬雄壮。
-良知在天地间奔腾唱响。
-谎言堆砌了欺人的蛊惑。
-虚伪表演了超人的骗术。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月23日 3:04 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/news392.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/dfcbzs/djy/blob/master/gb/news392_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/dfcbzs/djy/blob/master/gb/news392_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/dfcbzs/djy/blob/master/gb/news392_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/dfcbzs/djy/blob/master/gb/news392_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/dfcbzs/djy/blob/master/gb/news392_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/dfcbzs/djy/blob/master/gb/news392_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/dfcbzs/djy/blob/master/gb/news392_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/dfcbzs/djy/blob/master/gb/news392_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/dfcbzs/djy/blob/master/gb/news392_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/dfcbzs/djy/blob/master/gb/news392_2.md#1">下一页</a></h3></td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/dfcbzs/djy/blob/master/gb/news392.md#1<br><a href="https://github.com/dfcbzs/djy/blob/master/gb/news392.md#1"><img src="http://www.hehaibao.com/qr/index.php?m=1&e=L&p=10&t=&d=https://github.com/dfcbzs/djy/blob/master/gb/news392.md%231" title="分享本文章"></a><br>原文地址： <a href="http://www.epochtimes.com/gb/news392.htm">http://www.epochtimes.com/gb/news392.htm</a>    （国内需<a href="https://git.io/fjmgJ">下载翻墙软件</a>才能访问）</p>
