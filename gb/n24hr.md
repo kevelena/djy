@@ -642,5 +642,4 @@
 时间:2019年9月21日 (星期六)下午 5:00 pm—8:10 pm， 5:30pm开幕
 
 地点:华侨文教中心-5377 New P.........<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月25日 12:27 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/dfcbzs/djy/blob/master/gb/19/8/24/n11474944.md#1" target="_blank">【快讯】第六届新唐人武术大赛北美区初赛开赛</a><br></h3>8月24日上午，第六届新唐人武术大赛北美区初赛在美国新泽西举行。......<br><img align="bottom" src="http://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2019年08月24日 9:29 PM			</td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/dfcbzs/djy/blob/master/gb/n24hr.md#1<br><a href="https://github.com/dfcbzs/djy/blob/master/gb/n24hr.md#1"><img src="http://www.hehaibao.com/qr/index.php?m=1&e=L&p=10&t=&d=https://github.com/dfcbzs/djy/blob/master/gb/n24hr.md%231" title="分享本文章"></a><br>原文地址： <a href="http://www.epochtimes.com/gb/n24hr.htm">http://www.epochtimes.com/gb/n24hr.htm</a>    （国内需<a href="https://git.io/fjmgJ">下载翻墙软件</a>才能访问）</p>
